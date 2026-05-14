@@ -1,4 +1,4 @@
-# CANOPY CITY
+# TOPPLE TOWN
 ## Episode 1: "The Big Splash"
 **Runtime:** ~22 minutes
 **Positive Message:** When we share our strengths, we're stronger together than any of us could be alone.
@@ -7,13 +7,13 @@
 
 ### COLD OPEN (0:00 – 1:30)
 
-*WIDE ESTABLISHING SHOT — Wobbly Hollow at dawn. The sun rises slowly behind the ancient trees, painting the sky peach and gold. We drift through the city: rope bridges catching morning light, bakery chimneys puffing cinnamon-scented smoke, a squirrel newspaper carrier tossing papers onto doorsteps.*
+*WIDE ESTABLISHING SHOT — Topple Town at dawn. The sun rises slowly behind the ancient trees, painting the sky peach and gold. We drift through the city: rope bridges catching morning light, bakery chimneys puffing cinnamon-scented smoke, a squirrel newspaper carrier tossing papers onto doorsteps.*
 
 *AERIAL SHOT descends toward MOSSY HOLLOW LANE — a curved cobblestone street lined with cozy homes. We stop at a row of four houses, each distinct.*
 
 **NARRATOR (V.O.)**
 *(warm, gentle)*
-This... is Wobbly Hollow. Home to over a thousand animals, twelve bakeries, one very opinionated mayor, and the four most interesting families on Mossy Hollow Lane.
+This... is Topple Town. Home to over a thousand animals, twelve bakeries, one very opinionated mayor, and the four most interesting families on Mossy Hollow Lane.
 
 *QUICK CUTS of each family waking up:*
 
@@ -26,14 +26,14 @@ This... is Wobbly Hollow. Home to over a thousand animals, twelve bakeries, one 
 *— DAWNLEY STILT-HOUSE: Dax painting quietly. River already halfway up a bookshelf. Fern sits reading with a cup of tea, deeply peaceful — until River falls off the shelf.*
 
 **NARRATOR (V.O.)**
-Today, like every day, would be perfectly ordinary in Wobbly Hollow.
+Today, like every day, would be perfectly ordinary in Topple Town.
 
 *DRAMATIC THUNDER RUMBLE. A single raindrop hits the camera lens.*
 
 **NARRATOR (V.O.)**
 Mostly.
 
-*SMASH to TITLE CARD: CANOPY CITY — "The Big Splash" — in bright, bouncy letters with a raindrop dripping off the "S."*
+*SMASH to TITLE CARD: TOPPLE TOWN — "The Big Splash" — in bright, bouncy letters with a raindrop dripping off the "S."*
 
 ---
 
@@ -483,7 +483,7 @@ Well. I suppose I'll have to reschedule the cancelation.
 *At the center of the square, MAYOR HEDGEWICK climbs a small stage. He taps the microphone awkwardly.*
 
 **MAYOR HEDGEWICK**
-Citizens of Wobbly Hollow! This morning, our square flooded. And I — your mayor — declared the festival impossible.
+Citizens of Topple Town! This morning, our square flooded. And I — your mayor — declared the festival impossible.
 
 *Murmurs.*
 
@@ -521,7 +521,7 @@ You should do that on the stage sometime.
 *SLOW ZOOM OUT through the canopy, past the treetops, to the stars beginning to appear.*
 
 **NARRATOR (V.O.)**
-That night, in Wobbly Hollow, nobody remembered whose idea it had been to start fixing things. Because it didn't matter. It never does.
+That night, in Topple Town, nobody remembered whose idea it had been to start fixing things. Because it didn't matter. It never does.
 
 **NARRATOR (V.O.)**
 What mattered was that they'd each brought what they had — and what they had, together, turned out to be exactly enough.
@@ -562,7 +562,7 @@ MAMA!
 
 | Scene | Setting | Key Action | Emotion |
 |---|---|---|---|
-| 1 | Aerial — Wobbly Hollow | Dawn reveal, city waking | Wonder, warmth |
+| 1 | Aerial — Topple Town | Dawn reveal, city waking | Wonder, warmth |
 | 2 | Mossy Hollow Lane | Kids walking to school, storm arrives | Playful → tense |
 | 3 | Honey Loaf Bakery interior | Families gather, plan forms | Community, problem-solving |
 | 4 | Mossy Hollow square | Awning bridge construction | Teamwork, comedy |

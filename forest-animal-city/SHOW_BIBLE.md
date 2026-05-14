@@ -1,4 +1,4 @@
-# CANOPY CITY — Show Bible (Nonverbal Edition)
+# TOPPLE TOWN — Show Bible (Nonverbal Edition)
 
 ## Logline
 In a cheerful forest city built among ancient trees, animal families face everyday visible obstacles — a stuck wagon, a flooded path, a cake that won't cooperate — and overcome them together through pure expression, physical comedy, and heart. No words. All feeling.
@@ -27,7 +27,7 @@ In a cheerful forest city built among ancient trees, animal families face everyd
 
 ---
 
-## The World: Wobbly Hollow
+## The World: Topple Town
 
 A vibrant, colorful city built within and around a massive ancient forest. Bright daytime is the default — blue sky, fluffy clouds, sunshine streaming through leaves.
 

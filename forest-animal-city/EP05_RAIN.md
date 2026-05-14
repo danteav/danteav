@@ -1,4 +1,4 @@
-# CANOPY CITY
+# TOPPLE TOWN
 ## Episode 5: "Rain"
 **Runtime:** 10–15 minutes
 **Lead family:** All four families equally
@@ -9,13 +9,13 @@
 ---
 
 ### THE OBSTACLE
-A sudden, unexpected rainstorm hits Wobbly Hollow on what was supposed to be a perfect sunny day. Every family is caught mid-activity with something precious, fragile, or urgently needed — and nobody has enough shelter or cover for everything. The solution requires every family to share what they have.
+A sudden, unexpected rainstorm hits Topple Town on what was supposed to be a perfect sunny day. Every family is caught mid-activity with something precious, fragile, or urgently needed — and nobody has enough shelter or cover for everything. The solution requires every family to share what they have.
 
 ---
 
 ## BEAT 1 — SETUP (0:00–1:30)
 
-**EXT. CANOPY CITY — SUNNY MORNING**
+**EXT. TOPPLE TOWN — SUNNY MORNING**
 
 *Perfect day. Warm sun. Not a cloud in the sky.*
 
@@ -198,7 +198,7 @@ A sudden, unexpected rainstorm hits Wobbly Hollow on what was supposed to be a p
 
 *— SPROUT toddles out and jumps in every puddle. She gets completely wet again. Nobody is surprised.*
 
-*Wide shot: Wobbly Hollow after the rain. Rainbow fading. Everything bright and clean. Smoke curling from the bakery chimney.*
+*Wide shot: Topple Town after the rain. Rainbow fading. Everything bright and clean. Smoke curling from the bakery chimney.*
 
 *FADE OUT.*
 

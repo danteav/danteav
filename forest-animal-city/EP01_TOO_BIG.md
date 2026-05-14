@@ -1,4 +1,4 @@
-# CANOPY CITY
+# TOPPLE TOWN
 ## Episode 1: "Too Big"
 **Runtime:** 10–15 minutes
 **No dialogue. No words. Pure visual storytelling.**
@@ -196,7 +196,7 @@ Bruno the bear has built a magnificent oversized armchair as a birthday gift for
 
 *Final wide shot: Gerta's garden, golden afternoon light. Through the upstairs window — the enormous armchair, perfectly placed. Gerta visible, rocking gently, eyes closed.*
 
-*SLOW PULL BACK over Mossy Hollow Lane. Wobbly Hollow glowing in the sun.*
+*SLOW PULL BACK over Mossy Hollow Lane. Topple Town glowing in the sun.*
 
 *FADE OUT.*
 

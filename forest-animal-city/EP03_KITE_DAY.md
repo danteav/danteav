@@ -1,4 +1,4 @@
-# CANOPY CITY
+# TOPPLE TOWN
 ## Episode 3: "Kite Day"
 **Runtime:** 10–15 minutes
 **Lead family:** The Dawnleys (River + Fern)
@@ -9,7 +9,7 @@
 ---
 
 ### THE OBSTACLE
-It's a perfect windy day in Wobbly Hollow — ideal for kites. River and Fern Dawnley have a beautiful new kite. But when River gets carried away showing off and accidentally wrecks Pip Hopgood's kite, the fallout threatens to ruin kite day for everyone — until honesty and a generous act of forgiveness set everything right.
+It's a perfect windy day in Topple Town — ideal for kites. River and Fern Dawnley have a beautiful new kite. But when River gets carried away showing off and accidentally wrecks Pip Hopgood's kite, the fallout threatens to ruin kite day for everyone — until honesty and a generous act of forgiveness set everything right.
 
 ---
 

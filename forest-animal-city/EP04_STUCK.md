@@ -1,4 +1,4 @@
-# CANOPY CITY
+# TOPPLE TOWN
 ## Episode 4: "Stuck"
 **Runtime:** 10–15 minutes
 **Lead family:** The Hopgoods (Sprout + all siblings)

@@ -1,7 +1,7 @@
-# WOBBLY HOLLOW — Channel Strategy
+# TOPPLE TOWN — Channel Strategy
 
 ## The Show
-**Name:** Wobbly Hollow
+**Name:** Topple Town
 **Format:** Nonverbal cartoon — no dialogue, no words, ever
 **Runtime:** 10–15 minutes per episode
 **Audience:** Kids 2–8, parent co-viewing
@@ -12,8 +12,8 @@
 ## YouTube Channel Setup
 
 ### Channel Details
-- **Channel name:** Wobbly Hollow
-- **Handle:** @WobblyHollow
+- **Channel name:** Topple Town
+- **Handle:** @ToppleTown
 - **Category:** Kids & Family
 - **Content setting:** Mark ALL videos as "Made for Kids" (COPPA compliance)
   - This automatically disables comments and personalized ads
@@ -57,7 +57,7 @@ If you get 2–3 episodes ahead in production, batch-release the first few. New 
 
 ### Format
 ```
-[WHAT GOES WRONG] | Wobbly Hollow
+[WHAT GOES WRONG] | Topple Town
 ```
 
 Lead with the problem or the emotion — not the episode number. Standalone episodes don't need numbers. Numbers imply you have to watch in order.
@@ -65,14 +65,14 @@ Lead with the problem or the emotion — not the episode number. Standalone epis
 ### Season 1 Titles
 | Episode | YouTube Title |
 |---|---|
-| EP01 Too Big | TOO BIG! 🐻 | Wobbly Hollow |
-| EP02 The Cake | THE WOBBLING CAKE 🎂 | Wobbly Hollow |
-| EP03 Kite Day | THE KITE IS GONE! 🪁 | Wobbly Hollow |
-| EP04 Stuck | STUCK! 🐰 | Wobbly Hollow |
-| EP05 Rain | EVERYTHING IS WET 🌧️ | Wobbly Hollow |
-| EP06 The Race | THE RACE GOES WRONG 🏃 | Wobbly Hollow |
-| EP07 Up | NUTSY IS UP IN THE TREE! 😱 | Wobbly Hollow |
-| EP08 The Delivery | THREE-WAY CRASH 💥 | Wobbly Hollow |
+| EP01 Too Big | TOO BIG! 🐻 | Topple Town |
+| EP02 The Cake | THE WOBBLING CAKE 🎂 | Topple Town |
+| EP03 Kite Day | THE KITE IS GONE! 🪁 | Topple Town |
+| EP04 Stuck | STUCK! 🐰 | Topple Town |
+| EP05 Rain | EVERYTHING IS WET 🌧️ | Topple Town |
+| EP06 The Race | THE RACE GOES WRONG 🏃 | Topple Town |
+| EP07 Up | NUTSY IS UP IN THE TREE! 😱 | Topple Town |
+| EP08 The Delivery | THREE-WAY CRASH 💥 | Topple Town |
 
 ---
 
@@ -102,7 +102,7 @@ Lead with the problem or the emotion — not the episode number. Standalone epis
 - Same art style every episode
 - Same font if text is used
 - Same character proportions
-- Viewers should recognize a Wobbly Hollow thumbnail instantly
+- Viewers should recognize a Topple Town thumbnail instantly
 
 ---
 
@@ -175,7 +175,7 @@ Nonverbal animated kids content is the most licensable format in the world:
 ## Channel Description Template
 
 ```
-Welcome to Wobbly Hollow 🌳
+Welcome to Topple Town 🌳
 
 Where nothing goes quite right — but everything works out!
 

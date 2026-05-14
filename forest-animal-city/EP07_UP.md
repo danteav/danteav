@@ -1,4 +1,4 @@
-# CANOPY CITY
+# TOPPLE TOWN
 ## Episode 7: "Up"
 **Runtime:** 10–15 minutes
 **Lead family:** The Dawnleys (River + Fern) + The Berrymores (Bella)
