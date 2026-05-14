@@ -1,150 +1,178 @@
-# CANOPY CITY — Show Bible
+# CANOPY CITY — Show Bible (Nonverbal Edition)
 
 ## Logline
-In a bustling forest city built among ancient trees, four animal families navigate everyday adventures — from fixing flooded streets to saving the school play — always discovering that teamwork, kindness, and a little creativity solve everything.
+In a cheerful forest city built among ancient trees, animal families face everyday visible obstacles — a stuck wagon, a flooded path, a cake that won't cooperate — and overcome them together through pure expression, physical comedy, and heart. No words. All feeling.
+
+---
+
+## Format
+
+- **Runtime:** 20–25 minutes per episode
+- **Dialogue:** None. Zero words spoken. Ever.
+- **Sound:** Rich sound design + expressive emotional sounds (gasps, sighs, laughs, frustrated grunts, triumphant whoops). Full orchestral + acoustic score.
+- **Structure:** Each episode is a series of 3–5 connected visual vignettes, all set on the same day, building to one shared emotional payoff. Standalone — any episode, any order.
+- **Tone:** Warm physical comedy meets genuine heart. Think Shaun the Sheep meets Up's opening sequence — funny, expressive, emotionally true.
+- **Target audience:** All ages, all languages. Kids 2–8 primary, parent co-viewing built in.
+- **Visual style:** Pixar-style 3D animation. Bright saturated colors. Clear blue sky. High-key cheerful daytime lighting. Smooth expressive character animation. Faces do all the work.
+
+---
+
+## The Golden Rules of Nonverbal Storytelling
+
+1. **The obstacle must be VISIBLE and immediately understood** — a boulder blocking the path, a cake too tall for the shelf, a kite stuck in a tree. No abstract problems.
+2. **Emotions must read from 10 feet away** — exaggerated but never cruel. Wide eyes, drooping ears, puffed cheeks, trembling lips.
+3. **Failed attempts are funnier than the solution** — two or three creative failures before the win.
+4. **The win feels EARNED** — the emotional payoff only works if the struggle was real.
+5. **Sound is the voice** — every emotion has a sound. Frustrated trombone slide, triumphant horn, nervous violin tremolo, joyful xylophone.
 
 ---
 
 ## The World: Canopy City
 
-Canopy City is a vibrant, colorful metropolis built entirely within and around a massive ancient forest. Imagine a city where:
+A vibrant, colorful city built within and around a massive ancient forest. Bright daytime is the default — blue sky, fluffy clouds, sunshine streaming through leaves.
 
-- **Tree trunks** are apartment buildings, with round windows glowing warm amber at dusk
-- **Giant mushrooms** serve as bus stops and market stalls
-- **Rope-and-vine bridges** connect neighborhoods high in the canopy
-- **A sparkling stream** runs through the center of town — Willowbrook Creek — with a stone bridge and a riverside park
-- **Acorn Alley** is the main shopping street, cobblestoned with smooth river pebbles
-- **The Great Oak** is the town hall, school, and community center all in one
+### Key Locations
+| Location | Visual Feel | Common Obstacles |
+|---|---|---|
+| **Mossy Hollow Lane** | Cobblestone, flower boxes, round-windowed homes | Delivery gone wrong, something stuck, neighbors colliding |
+| **Acorn Alley** | Main market street, striped awnings, a central fountain | Cart tipping, stalls collapsing, runaway items |
+| **Willowbrook Park** | Lush green, creek, big willow tree, picnic benches | Kites, wind, water, sports gone sideways |
+| **The Honey Loaf Bakery** | Warm yellow interior, flour everywhere | Baking disasters, tall cakes, ovens, deliveries |
+| **Finn's Fix-It Shop** | Cluttered, colorful tools, blinking gadgets | Inventions backfiring, tools with a mind of their own |
+| **The Great Oak School** | Inside a tree trunk, rope-bridge playground | Sports day mishaps, art projects, playground adventures |
+| **Burrow Row** | Hillside warrens, wildflower gardens | Gardening disasters, digging mishaps, underground chaos |
 
-### Neighborhoods
-- **Mossy Hollow** — the cozy main residential neighborhood (where all four families live)
-- **The Canopy** — upscale tree-top homes for city officials
-- **Burrow Row** — underground/hillside homes, warm and snug
-- **Meadow's Edge** — the outdoor market, parks, sports fields
+---
 
-### Visual Style
-Pixar-style 3D animation. Bright, saturated, warm colors. Soft golden-hour lighting as a default. Smooth, expressive character animation. Cinematic camera work: wide establishing shots for the city, intimate close-ups for emotional beats. Backgrounds are lush and detailed but never cluttered. The forest always feels alive — leaves rustle, fireflies appear at dusk, rain smells like petrichor.
+## The Emotion Palette
+
+Every episode should hit at least 5 of these clearly readable emotions:
+
+| Emotion | Visual Cue | Sound |
+|---|---|---|
+| **Surprise** | Eyes pop wide, ears shoot up, jaw drops | Sharp string sting |
+| **Frustration** | Fists clenched, steam from ears, stomping | Low trombone wah |
+| **Determination** | Eyes narrow, jaw set, fists pump | Percussion build |
+| **Pride** | Chest puffs, chin up, big slow smile | Warm brass swell |
+| **Embarrassment** | Cheeks flush, eyes dart sideways, shoulders hunch | Soft descending flute |
+| **Fear** | Eyes shrink, body freezes, slow backing away | Nervous violin tremolo |
+| **Relief** | Whole body melts, big exhale, eyes close | Gentle harp glide |
+| **Delight** | Bounce on toes, clap hands, eyes crescents | Bright xylophone |
+| **Sadness** | Ears droop, lower lip wobbles, slow shuffle | Quiet solo cello |
+| **Triumph** | Arms shoot up, head back, full-body jump | Full orchestra hit |
 
 ---
 
 ## The Four Families
 
 ### THE BERRYMORES — Bear Family
-**Home:** A large round-windowed den in the base of a giant oak on Mossy Hollow Lane
+**Visual signatures:** Big round shapes, warm brown tones, Bruno's blue flannel, Bea's pink flour apron, Bernie's oversized red backpack, Bella's stuffed squirrel "Nutsy"
 
-**Papa Bruno Berrymore** (age ~40)
-Big, warm, barrel-chested brown bear. Lumbering walk, booming laugh. Runs **Bruin's Build & Supply** — the local lumber and hardware store. Heart of gold, sometimes overconfident but always means well. Motto: *"Nothing a good plan and strong paws can't fix."*
-
-**Mama Beatrice "Bea" Berrymore** (age ~38)
-Shorter, rounder, always has flour on her apron. Owns **The Honey Loaf Bakery** on Acorn Alley. Warm, perceptive, the emotional anchor of the neighborhood. She always notices when someone needs a hug or a freshly baked bun.
-
-**Bernie Berrymore** (age 10)
-The oldest cub. Big-hearted, brave, a little clumsy. Tries SO hard and sometimes that's his downfall — but he never gives up. Best friends with Zara Fox. Loves building things and sports.
-
-**Bella Berrymore** (age 7)
-Sweet, imaginative, fiercely loyal. Loves making art and helping Mama bake. Has a stuffed squirrel named "Nutsy" she carries everywhere.
+**Bruno** — Strong but clumsy in tight spaces. His attempts to help often make things bigger. The classic "too much enthusiasm, not enough coordination" character.
+**Bea** — Calm problem-solver who tries the sensible approach first. Her frustrated face (one eye twitching, apron gripped) is iconic.
+**Bernie** — Rushes in headfirst. His failure face (flat on the ground, one leg still in the air) recurs across episodes.
+**Bella** — Quietly observant. She often spots the actual solution while everyone else is panicking. Nutsy always reflects her mood (held tight = scared, waved around = excited).
 
 ---
 
 ### THE FENNICS — Fox Family
-**Home:** A narrow, clever three-story townhouse on Copper Tail Court, full of gadgets and inventions
+**Visual signatures:** Lean angular shapes, red-orange fur, Finn's wire glasses always going crooked, Faye's tool belt, Zara's purple notebook, Toby's permanently untied shoelaces
 
-**Papa Finn Fennic** (age ~38)
-Lean, quick-moving red fox with wire-rimmed glasses. Runs **Finn's Fix-It Shop** — if it's broken, Finn can fix it. Brilliant, a little scattered, talks fast when excited. Secretly terrible at asking for help.
-
-**Mama Faye Fennic** (age ~36)
-The inventor of the family. Works from her workshop at home designing clever contraptions for the city. Calm, methodical, wonderfully patient. The only one who can slow Finn down with a look.
-
-**Zara Fennic** (age 9)
-Whip-smart, loves gadgets and puzzles. Carries a small notebook everywhere for ideas. Bernie's best friend. Can sometimes be so focused on the logical solution that she forgets the human (er, animal) element.
-
-**Toby Fennic** (age 6)
-Wild, giggly, fearless. Always getting into Mama's workshop and accidentally "improving" things. Loves Sprout Hopgood, the two are a chaos duo.
+**Finn** — Overthinks. His "plan face" (glasses sliding down, tongue out, pointing) leads to elaborate solutions that almost work. Almost.
+**Faye** — Actually fixes things correctly on the first try but nobody listens to her until attempt three.
+**Zara** — Writes everything in her notebook, including diagrams. The diagram is always perfect. The execution is always chaotic.
+**Toby** — Pure chaos energy. Trips on his own shoelaces, causes ricochets, and accidentally solves problems by falling into them.
 
 ---
 
 ### THE HOPGOODS — Rabbit Family
-**Home:** A wide, cheerful warren-house with a sprawling garden on Cloverfield Street
+**Visual signatures:** Big ears that telegraph emotions perfectly (both up = alert, one drooping = tired, both flat = scared, wiggling = excited), Ruby's postal bag always overflowing, five kids in various states of chaos
 
-**Mama Ruby Hopgood** (age ~36, single parent)
-Energetic, warm, never stops moving. She's the city postal carrier — on her bicycle every morning before sunrise. Stretches herself thin but never complains. The kids are her whole world.
-
-**Clover Hopgood** (age 11)
-The responsible oldest. Helps Mama run the household, a little too serious for her age. Secretly loves dancing but is too self-conscious to do it in front of anyone. Her arc across episodes is learning it's okay to let go and have fun.
-
-**Pip Hopgood** (age 9)
-The sporty one. Competitive but fair. Best friends with River Dawnley. Always ready for a race.
-
-**Dot Hopgood** (age 8)
-Quiet, observant, incredibly creative. Draws comic strips in a little sketchbook. Notices things everyone else misses.
-
-**Scout Hopgood** (age 6)
-Adventurous, loud, uses a magnifying glass for everything. Wants to be an explorer.
-
-**Sprout Hopgood** (age 4)
-The baby. Pure chaos and pure joy. Says surprising wise things by accident. Chaos duo with Toby Fox.
+**Ruby** — The human hurricane. Moves at triple speed, somehow keeps everything barely under control. Her "oh no" face is a full-body freeze followed by a slow turn.
+**Clover** — The responsible one whose careful plans get derailed by her siblings. Her slow burn frustration is always played for laughs.
+**Pip** — Competitive. Turns everything into a race. Will literally race a snail with full intensity.
+**Dot** — Notices things. Taps people's shoulders and points silently. Often right.
+**Scout** — Investigates everything with a magnifying glass, including things that do not need investigating.
+**Sprout** — Toddler chaos. Wanders into frame at critical moments. Always fine. Always cheerful.
 
 ---
 
 ### THE DAWNLEYS — Deer Family
-**Home:** A tall, elegant stilt-house at the edge of Mossy Hollow, surrounded by wildflowers
+**Visual signatures:** Tall elegant shapes, soft earth tones, Dax's paint-splattered smock always has new colors, Dahlia's reading glasses perpetually pushed up on her head, Fern's nature journal, River's perpetually scuffed knees
 
-**Papa Dax Dawnley** (age ~40)
-Gentle, lanky, graceful even when nervous. Art teacher at The Great Oak School. Deeply thoughtful. Tells stories through paintings on the wall of the community center.
-
-**Mama Dahlia Dawnley** (age ~38)
-Runs the Canopy City Library — a magnificent tree-trunk building with spiral staircases and glowing lanterns. Loves words, stories, and finding the exact right book for the exact right moment.
-
-**Fern Dawnley** (age 10)
-A bookworm and nature lover. Knows the name of every plant in the forest. A bit anxious, but fiercely caring. Keeps a nature journal. Secretly a phenomenal singer — hasn't sung in front of anyone yet.
-
-**River Dawnley** (age 8)
-The adventurous one. Climbs everything. Best friends with Pip Hopgood. Gets excited about ideas before thinking them through — perfect foil to Fern's caution.
+**Dax** — Sees beauty in everything, often at inconvenient moments. He'll stop to admire the sunset during a crisis. His obliviousness is warm, never mean.
+**Dahlia** — Quietly competent. Always has the right book for the situation. Produces it from somewhere.
+**Fern** — Cautious and careful, but the most quietly capable kid. Her big moments are always underplayed — she just does the thing while everyone else panics.
+**River** — Climbs first, thinks later. Every episode has at least one moment where River is somewhere they absolutely should not be.
 
 ---
 
-## Tone & Format
+## Episode Structure (Nonverbal)
 
-- **Tone:** Warm, gentle, funny without being snarky. No mean-spirited humor. The comedy comes from character — misunderstandings, well-meaning mistakes, funny personality clashes that resolve with warmth.
-- **Runtime:** 20–25 minutes per episode
-- **Target audience:** Kids ages 3–8, watchable with parents (Bluey model)
-- **Episode structure:** Each episode is standalone. No cliffhangers. Ends with a clear positive message delivered organically through the story — never preachy.
-- **Music:** Bright orchestral score with folksy acoustic instruments (guitar, ukulele, hand percussion). Each family has a subtle musical theme.
+Each 20–25 minute episode follows this shape:
 
----
+### The Three-Vignette Arc
+**Vignette 1 (6–7 min):** One or two characters encounter a visible obstacle. Several failed attempts. Emotional escalation. Partial progress or new complication.
 
-## Recurring Locations
+**Vignette 2 (6–7 min):** A second family encounters a related or parallel obstacle. Their attempts cross paths with Vignette 1 in unexpected ways — sometimes making things worse, sometimes accidentally helping.
 
-| Location | Description |
-|---|---|
-| The Honey Loaf Bakery | Warm, golden, always smells like cinnamon |
-| Finn's Fix-It Shop | Cluttered with inventions, tools, blinking gadgets |
-| The Great Oak School | Spiral staircases inside the trunk, rope-bridge playground |
-| Acorn Alley | Main street — market stalls, cafes, a fountain |
-| Willowbrook Park | Central park with the creek, a big willow tree, picnic benches |
-| The Canopy City Library | Inside a massive tree, glowing lanterns, spiral staircases |
-| Mossy Hollow Lane | Cozy residential street where all four families live |
+**Vignette 3 / Convergence (8–10 min):** All families come together around one combined obstacle. Each family's strength is visually demonstrated. The solution requires all of them. Big triumphant payoff. Warm quiet moment after the chaos.
 
 ---
 
-## Recurring Side Characters
+## Obstacle Categories (Visual First)
 
-- **Mayor Hedgewick** — a fussy hedgehog mayor who means well but overcomplicates everything
-- **Old Gerta Tortoise** — the ancient, wise neighbor who's lived in Mossy Hollow for 200 years. Slow but always arrives at exactly the right moment.
-- **Coach Badger** — gym teacher at The Great Oak School. Very serious about sports. Secretly cries at beautiful sunsets.
-- **Hazel & Brin** — twin squirrel kids who are always in the background getting into something
+Every obstacle must be **immediately visible** — the audience should understand the problem in under 3 seconds.
+
+### Physical / Object Obstacles
+- Something too heavy to lift alone
+- Something stuck (in a tree, down a hole, wedged in a door)
+- Something rolling/sliding out of control
+- A structure that keeps falling down
+- Something too tall to reach
+- A path blocked by something large
+
+### Weather / Nature Obstacles
+- A sudden gust of wind that scatters everything
+- A muddy puddle that keeps growing
+- A bee/butterfly that causes a chain reaction of panics
+- An acorn avalanche
+- A stream that's overflowed the stepping stones
+
+### Timing / Sequence Obstacles
+- A delivery that needs to get somewhere before something happens
+- A cake/meal that's ready but the table isn't
+- Everyone trying to get through a small door at once
+- A chain of events set in motion that can't be stopped — only redirected
+
+### Creative / Making Obstacles
+- A banner that keeps falling
+- A gift that won't fit in the box
+- A kite that won't fly until it suddenly flies too well
+- A cake with structural integrity issues
+- Building something that leans further each time someone "fixes" it
 
 ---
 
-## Positive Messages by Episode Theme
+## Sound Design Guide
 
-Each episode explores one core theme organically:
+Since there's no dialogue, sound carries 50% of the storytelling:
 
-1. **Teamwork** — Different strengths make a stronger team
-2. **Asking for Help** — It's brave, not weak, to say "I need help"
-3. **Trying New Things** — Being nervous is okay; doing it anyway is how we grow
-4. **Inclusion** — Everyone belongs; leave no one out
-5. **Honesty** — A small mistake is always better fixed with truth than hidden
-6. **Patience** — Some good things take time
-7. **Kindness to Strangers** — You never know whose day a small act can change
-8. **It's Okay to Fail** — Failure is just the first draft of success
+- **Each character has a musical motif** that plays when they're the focus
+- **Physical comedy sounds** are exaggerated: boing, splat, crash, whoosh, pop
+- **Emotional underscore** shifts with the emotion palette — the orchestra reacts to faces
+- **Silence is used deliberately** — the moment before a disaster, the pause after a triumph
+- **Nature sounds are always present** as a warm backdrop: birdsong, leaves, the creek
+
+---
+
+## Episode Titles (Season 1 Concepts)
+
+1. **"Too Big"** — Bruno tries to deliver an enormous piece of furniture through a series of increasingly small doorways
+2. **"The Cake"** — Bea's 5-tier celebration cake must travel across town. Every bump in the road is a crisis.
+3. **"Kite Day"** — A perfect kite-flying day goes immediately wrong for every family in a different way
+4. **"Stuck"** — Sprout gets gently, completely stuck in a garden gate. Every rescue attempt makes it worse.
+5. **"Rain"** — A sudden shower sends everyone scrambling to protect something different
+6. **"The Race"** — Pip challenges everyone to a race. The course keeps changing.
+7. **"Up"** — Something precious floats up into the canopy. River tries to climb for it. Goes predictably.
+8. **"The Delivery"** — Ruby's postal route + Finn's contraption + Bruno's cart all converge in spectacular fashion
