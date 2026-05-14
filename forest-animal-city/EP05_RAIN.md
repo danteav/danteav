@@ -9,7 +9,7 @@
 ---
 
 ### THE OBSTACLE
-A sudden, unexpected rainstorm hits Canopy City on what was supposed to be a perfect sunny day. Every family is caught mid-activity with something precious, fragile, or urgently needed — and nobody has enough shelter or cover for everything. The solution requires every family to share what they have.
+A sudden, unexpected rainstorm hits Wobbly Hollow on what was supposed to be a perfect sunny day. Every family is caught mid-activity with something precious, fragile, or urgently needed — and nobody has enough shelter or cover for everything. The solution requires every family to share what they have.
 
 ---
 
@@ -198,7 +198,7 @@ A sudden, unexpected rainstorm hits Canopy City on what was supposed to be a per
 
 *— SPROUT toddles out and jumps in every puddle. She gets completely wet again. Nobody is surprised.*
 
-*Wide shot: Canopy City after the rain. Rainbow fading. Everything bright and clean. Smoke curling from the bakery chimney.*
+*Wide shot: Wobbly Hollow after the rain. Rainbow fading. Everything bright and clean. Smoke curling from the bakery chimney.*
 
 *FADE OUT.*
 

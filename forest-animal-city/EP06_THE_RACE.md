@@ -9,7 +9,7 @@
 ---
 
 ### THE OBSTACLE
-Pip Hopgood challenges the neighborhood kids to a big race through Canopy City. He sets the course, he writes the rules, and he expects to win — because he always wins. But when Pip starts bending his own rules to stay ahead, the race falls apart, and putting it right means doing something much harder than winning: admitting you were wrong.
+Pip Hopgood challenges the neighborhood kids to a big race through Wobbly Hollow. He sets the course, he writes the rules, and he expects to win — because he always wins. But when Pip starts bending his own rules to stay ahead, the race falls apart, and putting it right means doing something much harder than winning: admitting you were wrong.
 
 ---
 

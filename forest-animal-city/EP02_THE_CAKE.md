@@ -9,7 +9,7 @@
 ---
 
 ### THE OBSTACLE
-Bea has baked a spectacular five-tier celebration cake for Mayor Hedgewick's town anniversary party. It must travel from the Honey Loaf Bakery all the way across Canopy City to the Great Oak Town Hall — on foot, on a cart, down cobblestone streets, past the fountain, up a small hill. The cake is tall, wobbly, and covered in delicate frosting flowers. Every bump is a disaster waiting to happen.
+Bea has baked a spectacular five-tier celebration cake for Mayor Hedgewick's town anniversary party. It must travel from the Honey Loaf Bakery all the way across Wobbly Hollow to the Great Oak Town Hall — on foot, on a cart, down cobblestone streets, past the fountain, up a small hill. The cake is tall, wobbly, and covered in delicate frosting flowers. Every bump is a disaster waiting to happen.
 
 ---
 
@@ -17,7 +17,7 @@ Bea has baked a spectacular five-tier celebration cake for Mayor Hedgewick's tow
 
 **INT. HONEY LOAF BAKERY — MORNING**
 
-*Warm yellow light. Flour in the air. BEA steps back from her worktable and looks at her masterpiece: five tiers of layered cake, each decorated with tiny frosted flowers, a miniature Canopy City skyline piped in icing around the middle tier, and a small sugar Mayor Hedgewick on top (enormous hat included). It is extraordinary.*
+*Warm yellow light. Flour in the air. BEA steps back from her worktable and looks at her masterpiece: five tiers of layered cake, each decorated with tiny frosted flowers, a miniature Wobbly Hollow skyline piped in icing around the middle tier, and a small sugar Mayor Hedgewick on top (enormous hat included). It is extraordinary.*
 
 *EMOTION: Bea clasps her hands together. Eyes crescent with happiness. Pure pride.*
 
@@ -155,7 +155,7 @@ Bea has baked a spectacular five-tier celebration cake for Mayor Hedgewick's tow
 
 **INT. GREAT OAK TOWN HALL — THE PARTY**
 
-*The party is underway. Canopy City citizens fill the hall. The cake is the centerpiece.*
+*The party is underway. Wobbly Hollow citizens fill the hall. The cake is the centerpiece.*
 
 *Bea watches from the side as the Mayor cuts the first slice — carefully, ceremonially. He offers the first piece to Bea. She shakes her head and points to Clover.*
 

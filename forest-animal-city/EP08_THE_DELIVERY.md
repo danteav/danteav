@@ -25,7 +25,7 @@ Ruby's urgent postal delivery, Finn's remote-controlled test vehicle carrying a 
 
 **BRUNO** — Build & Supply, same time. His large supply cart is piled high with lumber, tools, bags of sand. He's making a delivery to the new building on Copper Lane. He's cheerful, waving at neighbors, not watching the road quite carefully enough.*
 
-*WIDE SHOT: the map of Canopy City. Three animated lines show each route. They all pass through — THE INTERSECTION of Mossy Hollow Lane and Acorn Alley.*
+*WIDE SHOT: the map of Wobbly Hollow. Three animated lines show each route. They all pass through — THE INTERSECTION of Mossy Hollow Lane and Acorn Alley.*
 
 *They're all heading there at the same time.*
 

@@ -27,7 +27,7 @@ In a cheerful forest city built among ancient trees, animal families face everyd
 
 ---
 
-## The World: Canopy City
+## The World: Wobbly Hollow
 
 A vibrant, colorful city built within and around a massive ancient forest. Bright daytime is the default — blue sky, fluffy clouds, sunshine streaming through leaves.
 
