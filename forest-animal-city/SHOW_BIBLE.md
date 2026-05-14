@@ -7,7 +7,7 @@ In a cheerful forest city built among ancient trees, animal families face everyd
 
 ## Format
 
-- **Runtime:** 10 minutes per episode
+- **Runtime:** 10–15 minutes per episode
 - **Dialogue:** None. Zero words spoken. Ever.
 - **Sound:** Rich sound design + expressive emotional sounds (gasps, sighs, laughs, frustrated grunts, triumphant whoops). Full orchestral + acoustic score.
 - **Structure:** One tight visual story — a single clear obstacle, 2–3 failed attempts, one convergence moment, one triumphant payoff, one quiet warm ending beat. Standalone — any episode, any order.
@@ -186,26 +186,26 @@ Each episode foregrounds 2–3 values while naturally including others in the ba
 
 ---
 
-## Episode Structure (Nonverbal, 10 Minutes)
+## Episode Structure (Nonverbal, 10–15 Minutes)
 
-Each episode follows one tight story arc — no subplots, no filler. Every second is either a laugh, a feeling, or a value moment.
+Each episode follows one tight story arc — no subplots, no filler. Every second is either a laugh, a feeling, or a value moment. Shorter episodes (10 min) run a lean 5-beat arc. Longer episodes (15 min) add one extra failure attempt in Beat 2 and expand the quiet ending in Beat 5.
 
 ### The Five-Beat Arc
 
 **BEAT 1 — Setup (0:00–1:30)**
 Introduce the obstacle visually in the first 10 seconds. The audience must understand the problem immediately — no build-up needed. Establish the character's starting emotion (usually excitement or pride).
 
-**BEAT 2 — Attempt & Fail (1:30–4:00)**
-Two or three increasingly creative, increasingly disastrous attempts to solve the problem alone. Each failure escalates the emotion: confusion → frustration → anger. The comedy lives here. The values begin here too — small moments of honesty, consideration, patience woven into the failures.
+**BEAT 2 — Attempt & Fail (1:30–5:00)**
+Two to four increasingly creative, increasingly disastrous attempts to solve the problem alone. Each failure escalates the emotion: confusion → frustration → anger. The comedy lives here. Values begin here too — small moments of honesty, consideration, and patience woven into the failures. Longer episodes get one extra attempt with a bigger, funnier consequence.
 
-**BEAT 3 — Others Notice (4:00–5:30)**
+**BEAT 3 — Others Notice (5:00–7:00)**
 A second character or family notices the struggle. They don't immediately fix it — they join in and also fail, or they offer a partial solution that creates a new problem. The emotion shifts: embarrassment, then gratitude that someone showed up.
 
-**BEAT 4 — Together (5:30–8:30)**
+**BEAT 4 — Together (7:00–11:30)**
 Everyone contributes their unique strength toward one shared solution. Each character's role is visually clear. The teamwork moment is the value payoff — sharing, helping, inclusion all land here. Building energy. The attempt is tense. Then it works.
 
-**BEAT 5 — Payoff & Quiet (8:30–10:00)**
-Big triumphant moment. Then a quiet cool-down: one or two small character beats that land the values gently (the sharing of a snack, a hug, a small gift given with no fuss). End on warmth, not noise.
+**BEAT 5 — Payoff & Quiet (11:30–15:00)**
+Big triumphant moment. Then a quiet cool-down: two to four small character beats that land the values gently (sharing a snack, a hug, a small gift given with no fuss, a graceful handshake after a loss). End on warmth, not noise.
 
 ---
 

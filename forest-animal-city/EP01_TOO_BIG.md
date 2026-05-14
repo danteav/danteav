@@ -1,6 +1,6 @@
 # CANOPY CITY
 ## Episode 1: "Too Big"
-**Runtime:** 10 minutes
+**Runtime:** 10–15 minutes
 **No dialogue. No words. Pure visual storytelling.**
 **Emotion arc:** Pride → Confusion → Frustration → Anger → Embarrassment → Gratitude → Determination → Love → Triumph → Warmth
 **Values:** Helping Others · Honesty · Consideration · Perseverance · Sharing · Respect
