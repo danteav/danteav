@@ -2,7 +2,8 @@
 ## Episode 1: "Too Big"
 **Runtime:** ~22 minutes
 **No dialogue. No words. Pure visual storytelling.**
-**Emotion arc:** Confidence → Frustration → Embarrassment → Determination → Teamwork → Triumph → Warmth
+**Emotion arc:** Pride → Frustration → Anger → Embarrassment → Determination → Gratitude → Love → Triumph → Warmth
+**Values featured:** Helping Others · Consideration · Perseverance · Respect · Honesty · Sharing · Patience
 
 ### Obstacle
 Bruno the bear has built a massive armchair as a gift for Old Gerta Tortoise's birthday. It is beautiful. It is enormous. It will not fit through any door in Canopy City.
@@ -42,6 +43,10 @@ Bruno the bear has built a massive armchair as a gift for Old Gerta Tortoise's b
 
 *EMOTION: Lying on his back, one leg in the air, staring at the sky. Slow blink. This is the Bruno Fail Pose — it recurs all episode.*
 
+*A small HEDGEHOG CHILD walking past stops to stare at Bruno on the ground. Bruno looks up at the child. The child points at the chair. Points at the gap. Slowly shakes their head.*
+*Bruno sits up, takes a breath, nods patiently at the child.*
+*VALUE: Patience — he doesn't snap at the child even while frustrated.*
+
 ---
 
 *He sits up. Narrows his eyes. New plan.*
@@ -66,9 +71,15 @@ Bruno the bear has built a massive armchair as a gift for Old Gerta Tortoise's b
 
 *Bruno and the enormous chair on the cart roll down the main market street. Citizens stop and stare. A hedgehog child points. Bruno waves cheerfully, not noticing the chaos the cart is causing behind him — awnings catching on the bow, a stack of pumpkins toppling, a merchant's wind chimes getting tangled.*
 
-*BERNIE jogs alongside, eyes wide, pointing at the destruction trail. Bruno pats his head warmly and keeps going.*
+*BERNIE jogs alongside, eyes wide, pointing at the destruction trail. Bruno finally turns and sees the toppled pumpkins. His face falls.*
 
-*EMOTION: Bruno — oblivious pride. Bernie — escalating alarm. Market animals — stunned.*
+*EMOTION → HONESTY: Bruno stops the cart. He looks at the mess. He looks around. He absolutely could keep walking — nobody saw him cause it. He looks at the merchant, who hasn't noticed yet. Bruno takes a breath — turns back — crouches down — and starts stacking every pumpkin back up, one by one. He gives the merchant an apologetic bow. The merchant blinks, then smiles and waves him off warmly.*
+*VALUE: Honesty + Respect — he didn't have to go back. He chose to.*
+
+*BERNIE watches this quietly. He absorbs it. He starts helping stack the last pumpkins.*
+*VALUE: Helping others — Bernie follows Bruno's lead without being told.*
+
+*EMOTION: Bruno — sheepish but warm. Bernie — quietly proud of his dad.*
 
 ---
 
@@ -99,12 +110,20 @@ Bruno the bear has built a massive armchair as a gift for Old Gerta Tortoise's b
 *He tries Route 2: Through Willowbrook Park.*
 *The cart rolls beautifully across the grass — until the wheels sink into the soft earth near the creek. The cart is stuck. He pulls. He strains. He goes red in the face (visible even through brown fur). He gets one wheel free. The other wheel sinks deeper.*
 *He stands knee-deep in mud, holding one wheel, looking at the sunken cart.*
-*EMOTION: The particular exhaustion of someone who has been trying very hard and things keep getting worse.*
+*EMOTION: Anger flares — brows slam down, foot stamps in the mud (splashing himself more), fists clench at his sides. A full beat of genuine anger.*
+*Then — the anger passes. His shoulders drop. His face softens into pure exhaustion.*
+*EMOTION: The deflation after anger. The particular tiredness of someone who has been trying very hard and things keep getting worse.*
+*VALUE: Self-regulation — anger is shown, validated, and then released. Kids see that anger is real AND that you can let it go.*
 
-*FERN DAWNLEY appears on the creek path, nature journal in hand, studying a flower. She stops. Looks at Bruno in the mud. Looks at the chair. Looks at the mud. Very carefully steps around the whole situation and continues on her way.*
-*She pauses. Looks back. Holds up her journal — she's drawn a quick diagram of a better route, pointing toward the hill path.*
-*She taps it, nods helpfully, and walks on.*
-*EMOTION: Bruno — grateful but also still covered in mud.*
+*FERN DAWNLEY appears on the creek path, nature journal in hand, studying a flower. She stops. Looks at Bruno in the mud. Looks at the chair. She almost walks around — her foot is mid-step to go past.*
+*She stops herself.*
+*She looks back at Bruno. He's staring at the mud, defeated. She watches him for a moment.*
+*She can't do nothing. She walks over.*
+*EMOTION: Consideration — she notices his feelings without being asked.*
+*She opens her journal — she's drawn a quick, clear diagram of a better route, pointing toward the hill path. She shows him. Taps it. Nods.*
+*VALUE: Helping others — she gave up her quiet walk to help someone who didn't ask.*
+*EMOTION: Bruno — eyes go soft with gratitude. He places one muddy paw over his heart. Bows his head.*
+*VALUE: Gratitude shown physically, not just a wave — a real, felt thank-you.*
 
 ---
 
@@ -229,12 +248,22 @@ Bruno the bear has built a massive armchair as a gift for Old Gerta Tortoise's b
 
 *Wide shot: Gerta's garden, late afternoon light, everyone sprawled on the grass recovering. Bea has appeared with a basket of baked goods (she always finds out where everyone is). She distributes honey buns.*
 
-*Individual quiet beats:*
-*— Finn and Bruno sitting side by side, both eating, both satisfied*
-*— Zara and Bernie comparing their different drawings of the solution — his is a mess, hers is perfect, they're both proud*
-*— Dot drawing the whole day in her sketchbook*
-*— River climbing Gerta's garden wall just to sit on top of it*
-*— Sprout asleep in Bella's lap, still smiling*
+*Individual quiet beats — each one a small value moment:*
+
+*— Finn and Bruno sitting side by side. Finn's bun is bigger. Without looking, he tears it and hands Bruno half.*
+*VALUE: Sharing — effortless, natural, no announcement.*
+
+*— Zara and Bernie compare their solution drawings. His is a chaotic scribble, hers is a precise diagram. Bernie's face falls slightly looking at the difference. Zara looks at his — pauses — then peels a gold star sticker from her notebook and presses it onto the corner of his drawing. His whole face lifts.*
+*VALUE: Kindness and Consideration — she honored his effort without lying about it.*
+
+*— Pip had been racing Scout all afternoon. Scout wins the last sprint, magnifying glass raised high. Pip's jaw tightens — a flash of frustration — then he breathes, walks over, and extends his paw. Scout shakes it like it's the best thing that's ever happened.*
+*VALUE: Respect and sportsmanship — losing gracefully is shown, not preached.*
+
+*— Dot finishes a drawing in her sketchbook: everyone working on the chair together. She quietly tears it out and tucks it under Sprout's sleeping paw — a gift given with zero expectation of credit.*
+*VALUE: Consideration — kindness that asks for nothing back.*
+
+*— Ruby spots Gerta slowly carrying a pot of tea from her kitchen toward her garden chair (the little outdoor one — the new one is upstairs). Ruby stands, takes the heavy pot gently from Gerta's hands, carries it for her, sets it down, sits back down.*
+*VALUE: Helping others, Respect for elders — seen and done without a word.*
 
 *Through Gerta's window: the armchair, perfectly placed. Gerta sits in it, rocking gently, eyes closed, peaceful.*
 

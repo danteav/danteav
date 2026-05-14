@@ -44,22 +44,101 @@ A vibrant, colorful city built within and around a massive ancient forest. Brigh
 
 ---
 
-## The Emotion Palette
+## The Full Emotion Library
 
-Every episode should hit at least 5 of these clearly readable emotions:
+Every episode must hit at least **7 distinct emotions** — and anger, frustration, love, and happiness must appear in every single episode. Emotions are never told — always shown.
 
-| Emotion | Visual Cue | Sound |
+### Core Emotions (required every episode)
+
+| Emotion | Visual Cue | Body Language | Sound |
+|---|---|---|---|
+| **Happiness / Joy** | Crescent eyes, wide open smile, rosy cheeks | Bouncing on toes, arms swinging, skipping | Bright ukulele strum |
+| **Love / Affection** | Soft eyes, gentle smile, leaning toward someone | Hugging, holding hands, offering something with both hands | Warm strings, soft harp |
+| **Frustration** | Fists clenched at sides, one eye twitching, cheeks puffed | Stomping foot, turning away, arms crossed tight | Low trombone wah-wah |
+| **Anger** | Red/flushed face, brows slammed down, steam from ears | Pacing, pointing, stamping both feet, hands on hips | Brash tuba blast |
+
+### Extended Emotion Palette (rotate through each episode)
+
+| Emotion | Visual Cue | Body Language | Sound |
+|---|---|---|---|
+| **Surprise** | Eyes pop huge, ears shoot straight up, jaw drops | Full body flinch backward, hands fly to cheeks | Sharp string sting |
+| **Sadness** | Ears droop completely, lower lip wobbles, single big tear | Slow shuffle walk, head down, hugging self | Quiet solo cello |
+| **Embarrassment** | Cheeks bright red, eyes dart sideways, chin tucks | Shoulders hunch, one foot behind other, hand covering face | Soft descending flute |
+| **Determination** | Eyes narrow to a squint, jaw set, slow nod | Rolls up sleeves, plants feet wide, fists pump once | Percussion build — snare roll |
+| **Fear / Nervousness** | Eyes shrink small, ears flatten, fur stands on end | Frozen in place, slow backing away, hiding behind someone | Nervous violin tremolo |
+| **Pride** | Chest puffs out, chin rises, slow broad smile | Strutting walk, thumbs up, standing tall | Warm brass swell |
+| **Relief** | Whole body deflates, huge exhale, eyes close briefly | Slumps forward, wipes forehead, sits down heavily | Gentle harp glide |
+| **Excitement** | Eyes wide and sparkly, mouth open in a grin | Full-body wiggle, can't stand still, jumping up and down | Fast bright pizzicato |
+| **Disappointment** | Eyes go dim, corners of mouth fall, slow blink | Head droops, turns away slowly, walks with heavy steps | Single low piano note |
+| **Triumph** | Arms shoot straight up, head thrown back, enormous grin | Full-body jump, spins around, pumps both fists | Full orchestra hit |
+| **Guilt / Regret** | Eyes look down and away, paw behind head, small wince | Shuffles toward the problem they caused, offers both hands | Hesitant woodwind |
+| **Gratitude** | Eyes soft and warm, slow deep nod, both hands to chest | Reaches out to touch shoulder, offers small bow, gentle pat | Warm cello swell |
+| **Impatience** | Tapping foot rapidly, checking imaginary watch, eyes rolling | Pacing in tight circle, peering around corners | Quick ticking percussion |
+| **Jealousy** | Eyes narrow, arms cross, looking sideways at someone | Body turns slightly away, chin juts forward, pout | Discordant pluck |
+| **Worry** | Brows knit together, hands wringing, biting lip | Pacing short back and forth, stops to look, paces again | Trembling oboe |
+
+---
+
+## Core Values — Shown, Never Told
+
+These principles are woven into every episode through visible actions. No lectures, no pointing at lessons. The characters simply live the values — kids absorb them naturally.
+
+### Sharing
+**How it looks:** A character has one item and another character clearly wants it. The first character hesitates — a beat of internal struggle (eyes dart between item and the other character) — then splits it, offers half, or hands it over entirely. The receiver's face makes the lesson land.
+**Key moment type:** Bernie has the last honey bun. Sprout is staring at it. Beat. Bernie breaks it in half.
+
+### Helping Others
+**How it looks:** Character A is struggling visibly with something. Character B notices — stops what they were doing, looks around as if checking no one else will help, then steps in without being asked. The unsolicited help is the point.
+**Key moment type:** Fern walks past Bruno stuck in the mud. She almost continues. She stops. She comes back.
+
+### Respect
+**How it looks:** Waiting your turn without pushing. Stopping what you're doing to let someone else go first. Gesturing "after you" at a doorway. Listening (facing someone, nodding, not interrupting even without words).
+**Key moment type:** Pip is about to grab the last spot on the bridge. An older character approaches. Pip steps back and waves them through.
+
+### Politeness / Manners
+**How it looks:** Waving hello, bowing slightly, holding a door open, helping pick up something someone dropped without being asked, covering mouth when startled, not pushing past.
+**Key moment type:** Bruno accidentally knocks over a merchant's apples. He stops, picks every single one up, stacks them back, gives an apologetic bow.
+
+### Consideration for Others
+**How it looks:** Noticing someone's feelings before they show them fully. Bringing someone a snack without being asked because you could see they were tired. Moving out of someone's way. Turning down something loud because someone nearby is resting.
+**Key moment type:** Bea spots Clover looking exhausted at the end of a scene. Without a word, she tucks a honey bun into Clover's bag.
+
+### Honesty
+**How it looks:** A character breaks or causes something by accident. They have a clear moment of temptation — look at the damage, look around to see if anyone saw, consider sneaking away. Then they turn back, find the person it belongs to, and show them what happened (pointing, looking ashamed). The honest moment is always followed by forgiveness.
+**Key moment type:** Toby trips and breaks Finn's gauge. He almost runs. He turns around, goes back, picks up the pieces, holds them out to Finn. Finn sighs — then hugs him.
+
+### Inclusion / Leaving No One Out
+**How it looks:** A group activity is happening. One character is on the outside — watching, not invited, looking small. Another character notices, walks over, and waves them in. The outsider's face going from small and sad to lit up is the emotional payoff.
+**Key moment type:** Dot is watching the other kids play from a distance. Scout turns around, spots her, runs over, physically takes her hand, leads her into the game.
+
+### Patience
+**How it looks:** Someone is moving slowly (Gerta the tortoise, Sprout on tiny legs). A faster character starts to push past or rush them — stops themselves — takes a breath — waits. Sometimes sits down to wait. The slow character's grateful look is the reward.
+**Key moment type:** Ruby on her bicycle route catches up to Gerta crossing the road. She starts to go around — stops — gets off her bike — walks slowly beside Gerta the whole way across.
+
+### Forgiveness
+**How it looks:** Two characters have a conflict (one accidentally hurts the other's feelings or project). Cold shoulder, turned backs, both sulking. Then one character makes a small gesture — offers something, approaches slowly. The other hesitates. Then accepts. The moment they face each other again is the resolution.
+**Key moment type:** Pip accidentally ruins Zara's carefully built project. Zara turns away, arms crossed. Pip sits nearby, looking miserable. Then quietly starts helping rebuild it. Zara turns. Watches. Turns back. Turns back again. Helps.
+
+### Perseverance
+**How it looks:** Repeated visible failures that would make anyone quit. Character falls, gets up. Falls again, gets up slower. Third time — takes a long breath, looks at the goal, gets up again. The "getting up" is the lesson, not the final success.
+**Key moment type:** Bernie fails to reach something three times. Each failure is funnier and worse. The third time he stands, he's covered in everything. He looks at the goal. Nods once. Tries again.
+
+---
+
+## Values-per-Episode Map (Season 1)
+
+Each episode foregrounds 2–3 values while naturally including others in the background.
+
+| Episode | Primary Values | Emotions Featured |
 |---|---|---|
-| **Surprise** | Eyes pop wide, ears shoot up, jaw drops | Sharp string sting |
-| **Frustration** | Fists clenched, steam from ears, stomping | Low trombone wah |
-| **Determination** | Eyes narrow, jaw set, fists pump | Percussion build |
-| **Pride** | Chest puffs, chin up, big slow smile | Warm brass swell |
-| **Embarrassment** | Cheeks flush, eyes dart sideways, shoulders hunch | Soft descending flute |
-| **Fear** | Eyes shrink, body freezes, slow backing away | Nervous violin tremolo |
-| **Relief** | Whole body melts, big exhale, eyes close | Gentle harp glide |
-| **Delight** | Bounce on toes, clap hands, eyes crescents | Bright xylophone |
-| **Sadness** | Ears droop, lower lip wobbles, slow shuffle | Quiet solo cello |
-| **Triumph** | Arms shoot up, head back, full-body jump | Full orchestra hit |
+| **EP01 "Too Big"** | Helping others, Perseverance, Consideration | Pride→Frustration→Anger→Determination→Gratitude→Love |
+| **EP02 "The Cake"** | Patience, Respect, Honesty | Excitement→Worry→Frustration→Embarrassment→Honesty→Relief |
+| **EP03 "Kite Day"** | Sharing, Inclusion, Forgiveness | Happiness→Jealousy→Anger→Sadness→Forgiveness→Triumph |
+| **EP04 "Stuck"** | Helping others, Patience, Consideration | Surprise→Fear→Frustration→Worry→Teamwork→Relief→Love |
+| **EP05 "Rain"** | Sharing, Respect, Consideration | Surprise→Scramble→Frustration→Empathy→Sharing→Warmth |
+| **EP06 "The Race"** | Fairness, Respect, Perseverance | Excitement→Competition→Frustration→Disappointment→Sportsmanship→Pride |
+| **EP07 "Up"** | Perseverance, Helping others, Trust | Determination→Fear→Frustration→Courage→Teamwork→Triumph |
+| **EP08 "The Delivery"** | Honesty, Consideration, Forgiveness | Chaos→Guilt→Embarrassment→Honesty→Forgiveness→Joy |
 
 ---
 
