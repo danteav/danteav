@@ -7,10 +7,10 @@ In a cheerful forest city built among ancient trees, animal families face everyd
 
 ## Format
 
-- **Runtime:** 20–25 minutes per episode
+- **Runtime:** 10 minutes per episode
 - **Dialogue:** None. Zero words spoken. Ever.
 - **Sound:** Rich sound design + expressive emotional sounds (gasps, sighs, laughs, frustrated grunts, triumphant whoops). Full orchestral + acoustic score.
-- **Structure:** Each episode is a series of 3–5 connected visual vignettes, all set on the same day, building to one shared emotional payoff. Standalone — any episode, any order.
+- **Structure:** One tight visual story — a single clear obstacle, 2–3 failed attempts, one convergence moment, one triumphant payoff, one quiet warm ending beat. Standalone — any episode, any order.
 - **Tone:** Warm physical comedy meets genuine heart. Think Shaun the Sheep meets Up's opening sequence — funny, expressive, emotionally true.
 - **Target audience:** All ages, all languages. Kids 2–8 primary, parent co-viewing built in.
 - **Visual style:** Pixar-style 3D animation. Bright saturated colors. Clear blue sky. High-key cheerful daytime lighting. Smooth expressive character animation. Faces do all the work.
@@ -186,16 +186,26 @@ Each episode foregrounds 2–3 values while naturally including others in the ba
 
 ---
 
-## Episode Structure (Nonverbal)
+## Episode Structure (Nonverbal, 10 Minutes)
 
-Each 20–25 minute episode follows this shape:
+Each episode follows one tight story arc — no subplots, no filler. Every second is either a laugh, a feeling, or a value moment.
 
-### The Three-Vignette Arc
-**Vignette 1 (6–7 min):** One or two characters encounter a visible obstacle. Several failed attempts. Emotional escalation. Partial progress or new complication.
+### The Five-Beat Arc
 
-**Vignette 2 (6–7 min):** A second family encounters a related or parallel obstacle. Their attempts cross paths with Vignette 1 in unexpected ways — sometimes making things worse, sometimes accidentally helping.
+**BEAT 1 — Setup (0:00–1:30)**
+Introduce the obstacle visually in the first 10 seconds. The audience must understand the problem immediately — no build-up needed. Establish the character's starting emotion (usually excitement or pride).
 
-**Vignette 3 / Convergence (8–10 min):** All families come together around one combined obstacle. Each family's strength is visually demonstrated. The solution requires all of them. Big triumphant payoff. Warm quiet moment after the chaos.
+**BEAT 2 — Attempt & Fail (1:30–4:00)**
+Two or three increasingly creative, increasingly disastrous attempts to solve the problem alone. Each failure escalates the emotion: confusion → frustration → anger. The comedy lives here. The values begin here too — small moments of honesty, consideration, patience woven into the failures.
+
+**BEAT 3 — Others Notice (4:00–5:30)**
+A second character or family notices the struggle. They don't immediately fix it — they join in and also fail, or they offer a partial solution that creates a new problem. The emotion shifts: embarrassment, then gratitude that someone showed up.
+
+**BEAT 4 — Together (5:30–8:30)**
+Everyone contributes their unique strength toward one shared solution. Each character's role is visually clear. The teamwork moment is the value payoff — sharing, helping, inclusion all land here. Building energy. The attempt is tense. Then it works.
+
+**BEAT 5 — Payoff & Quiet (8:30–10:00)**
+Big triumphant moment. Then a quiet cool-down: one or two small character beats that land the values gently (the sharing of a snack, a hug, a small gift given with no fuss). End on warmth, not noise.
 
 ---
 

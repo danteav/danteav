@@ -1,318 +1,238 @@
 # CANOPY CITY
 ## Episode 1: "Too Big"
-**Runtime:** ~22 minutes
+**Runtime:** 10 minutes
 **No dialogue. No words. Pure visual storytelling.**
-**Emotion arc:** Pride → Frustration → Anger → Embarrassment → Determination → Gratitude → Love → Triumph → Warmth
-**Values featured:** Helping Others · Consideration · Perseverance · Respect · Honesty · Sharing · Patience
-
-### Obstacle
-Bruno the bear has built a massive armchair as a gift for Old Gerta Tortoise's birthday. It is beautiful. It is enormous. It will not fit through any door in Canopy City.
+**Emotion arc:** Pride → Confusion → Frustration → Anger → Embarrassment → Gratitude → Determination → Love → Triumph → Warmth
+**Values:** Helping Others · Honesty · Consideration · Perseverance · Sharing · Respect
 
 ---
 
-## VIGNETTE 1: "The Chair" (0:00 – 7:30)
-
-**EXT. BRUIN'S BUILD & SUPPLY — MORNING**
-
-*Bright sunny day. Blue sky. Birds singing. Bruno's workshop door bursts open.*
-
-*BRUNO emerges, beaming with pride, pulling a enormous, gloriously overstuffed armchair on a cart. It is wrapped in a big yellow bow. He pats it lovingly. He holds up a card — a drawing of Old Gerta's face with a little heart. He points down the lane. He sets off.*
-
-*EMOTION: Pure beaming pride. Chest puffed. Chin up. Slow strutting walk.*
+### THE OBSTACLE
+Bruno the bear has built a magnificent oversized armchair as a birthday gift for Old Gerta Tortoise. It is gorgeous. It is enormous. It will not fit through her tiny front door.
 
 ---
 
-*He reaches the first door — the entrance to Mossy Hollow Lane's alleyway. He lines up the cart. He pushes.*
+## BEAT 1 — SETUP (0:00–1:30)
 
-*The chair does not fit.*
+**EXT. BRUIN'S WORKSHOP — MORNING**
 
-*He stares at the gap. He stares at the chair. He measures the gap with his paw. He measures the chair. He looks at the camera.*
+*Bright sunny day. Blue sky. Birdsong. Bruno's workshop door bursts open.*
 
-*EMOTION: Mild confusion. One eyebrow up.*
+*BRUNO strides out pulling a cart carrying an enormous, gloriously overstuffed armchair wrapped in a big yellow bow. He pats it proudly. He holds up a hand-drawn birthday card — Gerta's face with a heart. He points down the lane toward her house. He sets off, chest puffed, strutting.*
 
----
+*EMOTION: Pure beaming pride.*
 
-*He tries tilting the chair sideways. Pushes again.*
-*Still doesn't fit.*
+*Wide shot of Mossy Hollow Lane — Gerta's house is visible at the far end. Her front door is small. Round. Perfectly tortoise-sized.*
 
-*He tries tilting it the other way.*
-*Still doesn't fit.*
+*The camera cuts between the chair and the door. Back to the chair. Back to the door.*
 
-*He tries pushing very fast, as if speed will help.*
-*The chair bounces back and knocks him flat.*
-
-*EMOTION: Lying on his back, one leg in the air, staring at the sky. Slow blink. This is the Bruno Fail Pose — it recurs all episode.*
-
-*A small HEDGEHOG CHILD walking past stops to stare at Bruno on the ground. Bruno looks up at the child. The child points at the chair. Points at the gap. Slowly shakes their head.*
-*Bruno sits up, takes a breath, nods patiently at the child.*
-*VALUE: Patience — he doesn't snap at the child even while frustrated.*
+*Even the audience can see this isn't going to work.*
 
 ---
 
-*He sits up. Narrows his eyes. New plan.*
+## BEAT 2 — ATTEMPT & FAIL (1:30–4:00)
 
-*He produces a small handsaw from his apron pocket. He looks at the doorframe. He looks at the chair. He shakes his head firmly — he is NOT cutting the chair. He looks at the doorframe again.*
+**EXT. GERTA'S FRONT DOOR**
 
-*He begins carefully widening the doorframe.*
+*Bruno lines up the cart. He pushes confidently.*
 
-*One plank removed. Two planks. Three.*
+*The chair doesn't get within two feet of the door.*
 
-*He tests the gap. Almost.*
-
-*He removes one more plank. The entire doorframe collapses.*
-
-*A cascade of wood. Bruno stands in a cloud of dust with one plank in his paw.*
-
-*EMOTION: Eyes wide. Dust slowly settling. He waves it away. He looks at where the doorframe was. He looks at the gap — it is now MUCH bigger than needed. He looks at the chair. He looks at the gap. He shrugs optimistically and pushes the cart through.*
+*He stares at the gap. He measures with his paw. He measures the chair. He looks at the camera.*
+*EMOTION: Confusion. One eyebrow up.*
 
 ---
 
-**EXT. ACORN ALLEY — CONTINUOUS**
+**ATTEMPT 1 — TILT IT**
 
-*Bruno and the enormous chair on the cart roll down the main market street. Citizens stop and stare. A hedgehog child points. Bruno waves cheerfully, not noticing the chaos the cart is causing behind him — awnings catching on the bow, a stack of pumpkins toppling, a merchant's wind chimes getting tangled.*
+*He tilts the chair sideways. Pushes. Still doesn't fit.*
+*He tilts it the other way. Pushes harder. It bounces back and knocks him flat.*
 
-*BERNIE jogs alongside, eyes wide, pointing at the destruction trail. Bruno finally turns and sees the toppled pumpkins. His face falls.*
+*BRUNO FAIL POSE: flat on back, one leg in the air, staring at the sky.*
 
-*EMOTION → HONESTY: Bruno stops the cart. He looks at the mess. He looks around. He absolutely could keep walking — nobody saw him cause it. He looks at the merchant, who hasn't noticed yet. Bruno takes a breath — turns back — crouches down — and starts stacking every pumpkin back up, one by one. He gives the merchant an apologetic bow. The merchant blinks, then smiles and waves him off warmly.*
-*VALUE: Honesty + Respect — he didn't have to go back. He chose to.*
-
-*BERNIE watches this quietly. He absorbs it. He starts helping stack the last pumpkins.*
-*VALUE: Helping others — Bernie follows Bruno's lead without being told.*
-
-*EMOTION: Bruno — sheepish but warm. Bernie — quietly proud of his dad.*
+*A small hedgehog child walks past, looks at Bruno on the ground, slowly shakes their head.*
+*Bruno sits up, takes a patient breath, nods politely at the child.*
+*VALUE: Patience — frustrated but not unkind.*
 
 ---
 
-*They reach Old Gerta's front door. It is the smallest, coziest door on the lane. A perfect round tortoise-door.*
+**ATTEMPT 2 — MAKE THE DOOR BIGGER**
 
-*Bruno measures it with his eyes. He measures the chair. His smile slowly shrinks.*
+*Bruno produces a small saw. He looks at the chair — shakes his head firmly, not cutting that. He eyes the doorframe instead.*
 
-*He tries anyway. The chair doesn't get within three feet of the door.*
+*He carefully removes planks. One. Two. Three.*
+*He tests the gap. Almost!*
+*He removes one more plank. The entire doorframe collapses in a cloud of dust.*
 
-*EMOTION: Bruno crouches down and stares at the tiny door for a long moment. His ears droop slightly. Then they spring back up. He has not given up.*
-
-*He holds up one paw. Wait here.*
-
----
-
-## VIGNETTE 2: "The Route" (7:30 – 14:00)
-
-*Bruno is now attempting to find an alternate route. He has a hand-drawn map. The map makes no sense. He studies it seriously.*
-
-**EXT. SIDE STREETS OF MOSSY HOLLOW — MORNING**
-
-*He tries Route 1: The narrow garden path between two houses.*
-*The chair fits — barely — until it reaches a decorative garden arch covered in climbing roses. He pushes. The arch bends. He pushes harder. The arch catapults the chair backward, launching Bruno off his feet.*
-*BRUNO FAIL POSE. Birds land on him.*
+*Bruno stands holding one plank, dust settling. The gap is now enormous — and the chair still doesn't fit.*
+*EMOTION: Frustration building. Fists clench. He stamps his foot.*
 
 ---
 
-*He tries Route 2: Through Willowbrook Park.*
-*The cart rolls beautifully across the grass — until the wheels sink into the soft earth near the creek. The cart is stuck. He pulls. He strains. He goes red in the face (visible even through brown fur). He gets one wheel free. The other wheel sinks deeper.*
-*He stands knee-deep in mud, holding one wheel, looking at the sunken cart.*
-*EMOTION: Anger flares — brows slam down, foot stamps in the mud (splashing himself more), fists clench at his sides. A full beat of genuine anger.*
-*Then — the anger passes. His shoulders drop. His face softens into pure exhaustion.*
-*EMOTION: The deflation after anger. The particular tiredness of someone who has been trying very hard and things keep getting worse.*
-*VALUE: Self-regulation — anger is shown, validated, and then released. Kids see that anger is real AND that you can let it go.*
+**ATTEMPT 3 — MARKET STREET SHORTCUT**
 
-*FERN DAWNLEY appears on the creek path, nature journal in hand, studying a flower. She stops. Looks at Bruno in the mud. Looks at the chair. She almost walks around — her foot is mid-step to go past.*
-*She stops herself.*
-*She looks back at Bruno. He's staring at the mud, defeated. She watches him for a moment.*
-*She can't do nothing. She walks over.*
-*EMOTION: Consideration — she notices his feelings without being asked.*
-*She opens her journal — she's drawn a quick, clear diagram of a better route, pointing toward the hill path. She shows him. Taps it. Nods.*
-*VALUE: Helping others — she gave up her quiet walk to help someone who didn't ask.*
-*EMOTION: Bruno — eyes go soft with gratitude. He places one muddy paw over his heart. Bows his head.*
-*VALUE: Gratitude shown physically, not just a wave — a real, felt thank-you.*
+*Bruno takes the cart through Acorn Alley market. Citizens jump aside. Awnings catch on the bow. A stack of apples topples — scattered everywhere.*
 
----
+*The apple merchant stares at the mess. Bruno freezes. He could keep walking — no one saw him cause it.*
 
-*He tries Fern's route: The hill path behind the houses.*
-*GREAT news: the cart rolls perfectly.*
-*BAD news: it rolls too perfectly. The hill is steeper than it looked.*
+*He looks around. He turns back. He crouches down and picks up every single apple, stacks them perfectly, gives the merchant an apologetic bow.*
+*VALUE: Honesty — he chose to go back when he didn't have to.*
 
-*The cart begins to roll on its own. Bruno runs after it. The cart picks up speed. Bruno runs faster. The cart rounds a corner. Bruno rounds the corner after it — directly into FINN FENNIC, who is carrying a stack of boxes.*
+*The merchant smiles and waves him off warmly.*
 
-*Boxes everywhere. Finn's glasses are knocked sideways. He sits in a pile of boxes, blinking.*
+*BERNIE has been watching. He immediately helps stack the last few apples without being asked.*
+*VALUE: Helping others — Bernie follows the example.*
 
-*They both look down the hill — the chair cart has rolled to a gentle stop against a flower bed. The chair is fine. The bow is slightly askew.*
+*But while they were restacking... the cart has rolled. It's heading down the hill.*
 
-*EMOTION: Finn — dazed. Bruno — panting, holding knees, relieved. They look at each other. Finn straightens his glasses.*
+*EMOTION: Eyes wide. Both Bruno and Bernie sprint after it.*
 
-*Finn looks at the chair. He looks at Gerta's door (visible from here, tiny and round). He looks at Bruno. He picks up one of his boxes, opens it — it's full of tools. He holds up a tape measure with a questioning look.*
+*The cart hits a soft flower bed and stops gently. The chair: completely fine. The bow: slightly askew.*
+*EMOTION: Relief. Then — Bruno notices where the cart stopped. Right next to Gerta's garden wall.*
 
-*Bruno nods gratefully. They shake hands.*
+*He looks at the wall. He looks at the second-floor window above it — larger than the door. His eyes go wide with a new idea.*
 
 ---
 
-**EXT. GERTA'S FRONT GARDEN — MIDDAY**
+## BEAT 3 — OTHERS NOTICE (4:00–5:30)
 
-*Finn is now fully in problem-solving mode. He has measured everything. He's made notes. He's drawn diagrams in the air that Bruno watches with focused confusion.*
+**EXT. GERTA'S GARDEN WALL**
 
-*ZARA has appeared, notebook out, helping her dad measure. She measures twice. She writes it down. She shows Bruno. She points to a solution.*
+*Bruno studies the wall and window, pacing, working out the plan. He hasn't figured it out yet.*
 
-*EMOTION: Zara — efficient, certain. Bruno looks at her diagram. Nods slowly. Looks at the chair. Nods faster. Points at Zara enthusiastically.*
+*FERN DAWNLEY passes on the garden path, nature journal in hand. She sees Bruno pacing, sees the chair, sees the window. She almost walks on — her foot is mid-step.*
 
-*They all look at what Zara is pointing at: Old Gerta's WINDOW. It is bigger than the door. Not by much — but bigger.*
+*She stops herself. Looks back at Bruno's worried face.*
 
-*Bruno's eyes light up.*
+*She walks over. Opens her journal. Draws a quick clear diagram: chair → rope → wall → window. She shows him. Taps it.*
+*VALUE: Helping others — she stopped for someone who didn't ask.*
 
----
+*Bruno's face lights up. He puts a paw over his heart and bows.*
+*VALUE: Gratitude shown fully — not just a wave.*
 
-## VIGNETTE 3: "The Lift" (14:00 – 21:30)
+*Fern nods, a small smile. She starts to leave — then stays. She wants to see this work.*
 
-*New plan: get the chair up to and through the window. There is one complication: the window is on the second floor.*
+*FINN FENNIC rounds the corner carrying a toolbox, heading somewhere else entirely. He sees the scene, reads the situation immediately, pushes his glasses up, and sets his toolbox down.*
+*He wasn't asked. He just helps.*
+*VALUE: Helping others.*
 
-*Everyone stares up at it.*
+*BERNIE spots RIVER DAWNLEY up in a tree above (of course). River is already looking at the window with calculating eyes. River holds up a rope.*
 
-*BERNIE — who has been following this whole time eating a bun — stares up at the window. Stares at the chair. Gets very excited. He has ideas.*
-
-**THE FIRST ATTEMPT**
-
-*Bernie finds a plank. He leans it against the wall as a ramp. He gives a thumbs up.*
-
-*Bruno pushes the cart up the plank. The plank immediately folds in half.*
-*BRUNO FAIL POSE. The chair, perfectly fine.*
+*The team is assembled. Nobody asked anyone. They all just showed up.*
 
 ---
 
-**THE SECOND ATTEMPT**
+## BEAT 4 — TOGETHER (5:30–8:30)
 
-*Finn has built a pulley system from his tools. It is elaborate and beautiful and color-coded. He presents it proudly.*
+**EXT. GERTA'S GARDEN — THE LIFT**
 
-*They attach the chair. They begin to crank.*
+*Finn rigs the rope system — his glasses go crooked twice, he straightens them twice.*
+*River ties the rope to a high branch above the window with practiced speed.*
+*Bruno positions the cart below.*
+*Fern steadies the chair from one side.*
+*Bernie steadies it from the other.*
 
-*The chair rises. One foot. Two feet. Three—*
+*SPROUT HOPGOOD appears sitting IN the chair. Nobody saw her get there. She waves.*
 
-*TOBY FENNIC (who has appeared from nowhere) trips over the rope.*
+*Everyone looks at each other. There's no time. They proceed.*
 
-*The chair swings sideways, arcs through the air, and comes to rest perfectly balanced on top of the garden gate.*
+*Zara (notebook out, appeared from nowhere) signals the timing with hand signals.*
 
-*Everyone freezes.*
+*The chair — Sprout aboard, arms spread wide, pure delight — rises slowly on the rope.*
 
-*The chair sits on top of the gate like a crown.*
+*It wobbles. Everyone leans with it. Bruno grabs the guide rope, straining.*
+*EMOTION: Collective worry. Held breath.*
 
-*TOBY looks at the chair. Looks at the rope around his ankle. Waves apologetically.*
+*The chair steadies. It rises level with the window.*
 
-*EMOTION: A long beat of everyone staring. Then — slowly — BELLA BERRYMORE walks up, having just arrived. She looks at the chair on the gate. She looks up at the window. She looks at the gate. A slow smile.*
+*Gerta's window is open. The chair is right there.*
 
-*She points: the gate is the same height as the window.*
+*One inch too far left.*
 
----
+*River, still in the tree, leans out and gives it the gentlest nudge.*
 
-**THE THIRD ATTEMPT — THE RIGHT ONE**
+*The chair slides perfectly through the window.*
 
-*Everyone gathers. The Hopgood kids have arrived (they followed the chaos from the park). Ruby appears on her bicycle, stops, surveys the situation, dismounts, and wordlessly starts helping.*
+*Soft thud from inside. Silence.*
 
-*Here is the plan, executed in a warm montage of cooperation:*
+*Then — from inside — a slow, warm, delighted tortoise sound. Overjoyed.*
 
-*— BRUNO positions the cart next to the gate*
-*— FINN and FAYE (arrived with more tools) rig a proper sliding system along the gate top*
-*— RIVER DAWNLEY (appeared from a tree above, where he was watching) ties a guide rope from above*
-*— CLOVER and PIP Hopgood steady the cart*
-*— SCOUT investigates the pulley with his magnifying glass. Dot taps his shoulder and points away from the pulley.*
-*— ZARA calls the timing with hand signals*
-*— BELLA holds Nutsy up toward the window for encouragement*
-*— SPROUT sits on the chair for the ride up (nobody authorized this; nobody stops it in time)*
+*Sprout's head pops up in the window. Arms raised.*
 
-*The chair — with Sprout aboard, arms wide, completely thrilled — slides smoothly along the gate rail, rises on the rope, and glides perfectly through Gerta's open window.*
-
-*A pause.*
-
-*From inside the house: a soft thud of something landing perfectly.*
-*Then: a delighted tortoise sound effect — warm, slow, surprised and overjoyed.*
-
-*Then Sprout's head appears in the window, arms raised in triumph.*
-
-*EMOTION: Eruption. Everyone cheers. Bernie jumps so high he disappears for a moment. Bruno covers his face with both paws, overwhelmed.*
+*EMOTION: Full eruption. Bernie launches into the air. Bruno covers his face with both paws. Finn's glasses go fully sideways. River nearly falls out of the tree.*
 
 ---
 
-**EXT. GERTA'S GARDEN — AFTERNOON**
+## BEAT 5 — PAYOFF & QUIET (8:30–10:00)
 
-*Old Gerta slowly emerges from her front door. She has apparently gone around to look at the chair from the door side. She is tiny. The chair is visible through her window behind her, enormous and perfect.*
+**EXT. GERTA'S FRONT GARDEN — MOMENTS LATER**
 
-*She looks at the assembled crowd — all four families, muddy, paint-smudged, sawdust-covered, grinning.*
+*Old Gerta emerges from her front door slowly. She is tiny. She looks at the crowd — muddy, paint-smudged, grinning.*
 
-*She looks at Bruno.*
+*She finds Bruno. She opens her arms.*
 
-*She opens her arms.*
+*Bruno crouches down. Gerta hugs him. His face: pure soft joy.*
+*EMOTION: Love. Genuine, uncomplicated love.*
 
-*Bruno, enormous bear, crouches down and accepts a hug from the tiny tortoise. His expression — absolute soft joy.*
-
-*EMOTION: The whole crowd goes quiet and warm. Even Finn's glasses have gotten slightly foggy.*
+*The crowd goes quiet and warm.*
 
 ---
 
-**THE QUIET ENDING**
+**THE QUIET ENDING — VALUE MOMENTS**
 
-*Wide shot: Gerta's garden, late afternoon light, everyone sprawled on the grass recovering. Bea has appeared with a basket of baked goods (she always finds out where everyone is). She distributes honey buns.*
+*Everyone settles on the grass. BEA arrives with a basket of honey buns (she always knows where everyone is).*
 
-*Individual quiet beats — each one a small value moment:*
+*— Finn's bun is bigger. Without looking, he tears it and hands Bruno the larger half.*
+*VALUE: Sharing — no announcement, no fuss.*
 
-*— Finn and Bruno sitting side by side. Finn's bun is bigger. Without looking, he tears it and hands Bruno half.*
-*VALUE: Sharing — effortless, natural, no announcement.*
+*— Pip had been racing Scout up and down the garden path. Scout wins the last race. Pip's jaw tightens — then he breathes out, walks over, and shakes Scout's paw.*
+*VALUE: Respect and sportsmanship.*
 
-*— Zara and Bernie compare their solution drawings. His is a chaotic scribble, hers is a precise diagram. Bernie's face falls slightly looking at the difference. Zara looks at his — pauses — then peels a gold star sticker from her notebook and presses it onto the corner of his drawing. His whole face lifts.*
-*VALUE: Kindness and Consideration — she honored his effort without lying about it.*
+*— Dot has been drawing quietly. She finishes a sketch of everyone at the window moment. She quietly slides it under Sprout's sleeping paw — a gift with no credit asked.*
+*VALUE: Consideration.*
 
-*— Pip had been racing Scout all afternoon. Scout wins the last sprint, magnifying glass raised high. Pip's jaw tightens — a flash of frustration — then he breathes, walks over, and extends his paw. Scout shakes it like it's the best thing that's ever happened.*
-*VALUE: Respect and sportsmanship — losing gracefully is shown, not preached.*
+*— Ruby spots Gerta slowly carrying a teapot. Ruby stands, gently takes it, carries it to her, sets it down, sits back down. Gerta pats her hand.*
+*VALUE: Respect for elders, helping without being asked.*
 
-*— Dot finishes a drawing in her sketchbook: everyone working on the chair together. She quietly tears it out and tucks it under Sprout's sleeping paw — a gift given with zero expectation of credit.*
-*VALUE: Consideration — kindness that asks for nothing back.*
+*Final wide shot: Gerta's garden, golden afternoon light. Through the upstairs window — the enormous armchair, perfectly placed. Gerta visible, rocking gently, eyes closed.*
 
-*— Ruby spots Gerta slowly carrying a pot of tea from her kitchen toward her garden chair (the little outdoor one — the new one is upstairs). Ruby stands, takes the heavy pot gently from Gerta's hands, carries it for her, sets it down, sits back down.*
-*VALUE: Helping others, Respect for elders — seen and done without a word.*
-
-*Through Gerta's window: the armchair, perfectly placed. Gerta sits in it, rocking gently, eyes closed, peaceful.*
-
-*SLOW PULL BACK through the garden, over the lane, rising above Mossy Hollow, Canopy City glowing in the afternoon sun.*
+*SLOW PULL BACK over Mossy Hollow Lane. Canopy City glowing in the sun.*
 
 *FADE OUT.*
 
 ---
 
-## EMOTION BEAT CHART
+## BEAT-BY-BEAT TIMING
 
-| Timestamp | Character | Emotion | Visual Cue |
+| Time | Beat | Emotion | Value |
 |---|---|---|---|
-| 0:30 | Bruno | Pride | Puffed chest, strutting walk |
-| 2:00 | Bruno | Confusion | One eyebrow up, head tilt |
-| 3:30 | Bruno | Determination | Eyes narrow, rolls up sleeves |
-| 4:15 | Bruno | Fail | Flat on back, one leg up |
-| 5:00 | Bernie | Alarm | Eyes wide, pointing frantically |
-| 6:30 | Bruno | Drooping | Ears slightly down, slow stare at tiny door |
-| 7:00 | Bruno | Rallying | Ears spring up, one paw raised |
-| 9:00 | Bruno | Exhaustion | Heavy breathing, muddy, staring at nothing |
-| 10:30 | Fern | Calm helpfulness | Quiet nod, diagram in journal |
-| 11:30 | Bruno | Relief + Gratitude | Nods, points at Fern's drawing gratefully |
-| 12:00 | Finn | Dazed → Engaged | Straightens glasses, pulls out tape measure |
-| 13:30 | Zara | Certainty | Points, nods, taps notebook |
-| 14:30 | Everyone | Collective stare-up | Synchronized head tilt upward |
-| 15:30 | Bernie | Excited idea | Bouncing, big grin, grabs plank |
-| 17:00 | Toby | Apologetic | Waves at tangled ankle, sheepish smile |
-| 17:30 | Bella | Quiet realization | Slow smile spreading, points |
-| 18:30 | Sprout | Pure Joy | Arms wide, wind in ears on the chair |
-| 20:00 | Bruno | Overwhelmed joy | Covers face with both paws |
-| 21:00 | Bruno + Gerta | Warmth | Big bear, tiny tortoise hug |
-| 22:00 | All | Peaceful satisfaction | Sprawled on grass, honey buns |
+| 0:00–0:10 | Bruno emerges with chair | Pride | — |
+| 0:10–0:30 | Walk to Gerta's — audience sees the problem | Confidence | — |
+| 0:30–1:30 | First look at the door | Confusion | — |
+| 1:30–2:15 | Attempt 1: tilt, fail, child walks by | Frustration → Patience | Patience |
+| 2:15–3:00 | Attempt 2: doorframe collapse | Frustration → Anger | — |
+| 3:00–4:00 | Attempt 3: market, apples, Bruno goes back | Embarrassment → Honesty | Honesty + Helping |
+| 4:00–5:30 | Fern stops, Finn shows up, team assembles | Gratitude | Helping others |
+| 5:30–7:30 | The lift — tension, wobble, nudge | Worry → Focus | Teamwork |
+| 7:30–8:30 | Chair through window — Sprout pops up | Triumph | — |
+| 8:30–9:00 | Gerta + Bruno hug | Love | Love |
+| 9:00–10:00 | Quiet ending — 4 value moments | Warmth | Sharing, Respect, Consideration |
 
 ---
 
-## VIDEO GENERATION PROMPTS (Bright Daytime Style)
+## VIDEO GENERATION PROMPTS
 
-**Scene 1 — Bruno and the chair:**
-"Bright sunny daytime, Pixar 3D cartoon animation, a large friendly brown bear in a blue flannel shirt beaming with pride as he pulls an enormous overstuffed armchair on a wooden cart down a colorful cobblestone street in a magical forest city, blue sky, vivid saturated colors, warm cheerful sunlight, wide shot"
+**Opening — Bruno and the chair:**
+"Bright sunny daytime, Pixar 3D cartoon animation, a large friendly brown bear in a blue flannel shirt beaming with pride pulling an enormous overstuffed yellow-bow-wrapped armchair on a cart down a colorful cobblestone forest city street, blue sky, vivid saturated colors, wide cheerful establishing shot, kids cartoon style"
 
-**Scene 2 — Bruno's fail pose:**
-"Pixar 3D cartoon animation, bright sunny day, a large brown bear cartoon character lying flat on his back on cobblestones with one leg in the air, eyes wide and blinking at the sky, an enormous armchair visible in the background, exaggerated funny expression, bright colors, blue sky, kids cartoon style"
+**Fail pose:**
+"Pixar 3D cartoon animation, bright sunny day, a big brown bear cartoon character lying flat on his back on cobblestones, one leg in the air, eyes wide blinking at the blue sky, enormous armchair visible in background, exaggerated funny expression, bright colors, kids cartoon style"
 
-**Scene 3 — The muddy creek attempt:**
-"Pixar 3D cartoon animation, bright sunny day, a large brown bear cartoon character standing knee-deep in muddy creek water, frustrated expression, holding a cart wheel, an enormous armchair cart stuck behind him, vivid colors, expressive cartoon face showing exhausted frustration, blue sky, kids cartoon"
+**Honesty moment — restacking apples:**
+"Pixar 3D cartoon animation, bright sunny day, a large brown bear cartoon character carefully and apologetically restacking bright red apples at a colorful market stall, a small young bear cub helping beside him, a surprised smiling rabbit merchant watching, cheerful forest city market background, warm expressive faces, bright saturated colors"
 
-**Scene 4 — Sprout's ride:**
-"Pixar 3D cartoon animation, bright sunny daytime, a tiny excited baby rabbit with wide joyful eyes riding an enormous armchair that is being lifted through the air by ropes, arms spread wide with pure delight, colorful forest city background, blue sky, crowd of cartoon animal characters below cheering, bright saturated colors, triumphant joyful moment"
+**The lift — Sprout's ride:**
+"Pixar 3D cartoon animation, bright sunny daytime, a tiny baby rabbit with huge joyful eyes riding an enormous armchair rising through the air on ropes toward a second-floor window, arms spread wide with pure delight, a crowd of cheerful cartoon animal characters below with worried and excited faces, colorful forest city background, bright saturated colors, triumphant kids cartoon moment"
 
-**Scene 5 — The warm ending:**
-"Pixar 3D cartoon animation, warm afternoon sunlight, a large brown bear gently crouching down to receive a hug from a tiny old tortoise in a cozy garden, surrounded by a crowd of smiling cartoon animal families, magical forest city background, soft golden light, bright saturated colors, heartwarming emotional moment, kids cartoon style"
+**The hug — Gerta and Bruno:**
+"Pixar 3D cartoon animation, warm afternoon sunlight, a large friendly brown bear crouching down to receive a hug from a tiny elderly tortoise in a cozy flower garden, surrounded by smiling cartoon animal families, magical forest city background, soft golden light, heartwarming emotional moment, bright saturated colors, kids cartoon style"
