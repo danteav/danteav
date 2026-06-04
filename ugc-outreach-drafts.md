@@ -30,8 +30,13 @@ I'd love to feature Caraway cookware in an authentic dinner prep video — you'd
 
 Open to connecting?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -47,8 +52,13 @@ I'd love to create a paid UGC video for True Nature Meats — a real family dinn
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -64,8 +74,13 @@ I'd love to create a paid UGC video for Grubhub — an honest, funny, real-mom m
 
 Open to chatting about rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -87,8 +102,13 @@ I'd love to create a paid UGC video for Fabula — a real morning routine clip y
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -104,8 +124,13 @@ I'd love to create a paid UGC video for Javvy — an authentic morning moment yo
 
 Open to connecting about rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -121,8 +146,13 @@ I'd love to create a paid UGC video for you — a real morning moment you can us
 
 Would you be open to chatting about rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -138,8 +168,13 @@ I'd love to create a paid UGC video for Ryl — cozy, lifestyle-driven content y
 
 Open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -161,8 +196,13 @@ I'd love to create a paid UGC video for Three Wishes — a real family breakfast
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -178,8 +218,13 @@ I'd love to create a fun breakfast video featuring Magic Spoon — you'd get the
 
 Open to connecting?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -195,8 +240,13 @@ I'd love to create a paid UGC snack video for Partake — relatable mom + kids c
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -212,8 +262,13 @@ I'd love to create a paid UGC video for Amara — real toddler snack content you
 
 Open to chatting about rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -229,8 +284,13 @@ I'd love to create a paid UGC video for Puff Cookies — a fun family snack mome
 
 Open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -246,8 +306,13 @@ I'd love to create a paid UGC video for LesserEvil — authentic mom and kids sn
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -263,8 +328,13 @@ I'd love to create a paid UGC video for RIND — a real, relatable snack moment 
 
 Open to connecting about rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -280,8 +350,13 @@ I'd love to create a paid UGC video for Chocxo — a real lifestyle moment you c
 
 Open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -297,8 +372,13 @@ I'd love to create a paid UGC video for Just Ingredients — an authentic wellne
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -320,8 +400,13 @@ I'd love to feature your costumes in a play day video — you'd get the raw file
 
 Open to connecting?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -337,8 +422,13 @@ I'd love to create a paid UGC video for Wonderbly — a real kids' reaction mome
 
 Open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -354,8 +444,13 @@ I'd love to create a paid UGC video for Little Bible Stories — a real family r
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -371,8 +466,13 @@ I'd love to create a paid UGC video for ABC Mouse — a real toddler learning mo
 
 Open to connecting about rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -388,8 +488,13 @@ I'd love to create a paid UGC video for Crafty by Numbers — a real family acti
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -423,8 +528,13 @@ I'd love to feature a Toki Mat in a real baby play video — you'd get the raw f
 
 Open to connecting?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -440,8 +550,13 @@ I'd love to create a paid UGC video for Lullaby Earth — an authentic nursery a
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -457,8 +572,13 @@ I'd love to create a paid UGC video for Tasty Tie — a real baby mealtime momen
 
 Open to chatting about rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -474,8 +594,13 @@ I'd love to create a paid UGC video for Maneji — an authentic baby care moment
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -491,8 +616,13 @@ I'd love to create a paid UGC video for Kendamil — an honest, warm feeding mom
 
 Open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -508,8 +638,13 @@ I'd love to create a paid UGC video for Formuland — authentic baby feeding con
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -525,8 +660,13 @@ I'd love to create a paid UGC video for SubLuna — a genuine mom + toddler snac
 
 Open to chatting about rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -542,8 +682,13 @@ I'd love to create a paid UGC video for Childlife Vitamins — an authentic morn
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -559,8 +704,13 @@ I'd love to create a paid UGC video for Our Little Treasures — a heartfelt fam
 
 Open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -576,8 +726,13 @@ I'd love to create a paid UGC video for Renzo — a real on-the-go family moment
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -593,8 +748,13 @@ I'd love to create a paid UGC video for Guava Family — an authentic on-the-go 
 
 Open to chatting about rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -616,8 +776,13 @@ I'd love to create a try-on video featuring Halara — you'd get the raw files f
 
 Open to connecting?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -633,8 +798,13 @@ I'd love to create an authentic try-on video for Fabletics — you'd get the raw
 
 Interested in connecting?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -650,8 +820,13 @@ I'd love to create a paid UGC video for Baltic Born — a real family lifestyle 
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -667,8 +842,13 @@ I'd love to create a paid UGC haul video for PatPat — fun, real mom content yo
 
 Open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -684,8 +864,13 @@ I'd love to create a real family lifestyle video featuring HeyDude — you'd get
 
 Open to connecting?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -701,8 +886,13 @@ I'd love to create a UGC video for Kindred Bravely — an authentic everyday mom
 
 Open to discussing rates or gifting?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -718,8 +908,13 @@ I'd love to create an authentic try-on video for Pink Blush — you'd get the ra
 
 Open to connecting?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -747,8 +942,13 @@ I'd love to create a paid UGC video for Arbor Made — a cozy, atmospheric home 
 
 Open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -764,8 +964,13 @@ I'd love to create a cozy lifestyle video featuring Zonli — you'd get the raw 
 
 Open to connecting?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -781,8 +986,13 @@ I'd love to create a heartfelt home lifestyle video featuring Nixplay — you'd 
 
 Open to connecting?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -798,8 +1008,13 @@ I'd love to create a paid UGC before/after video for 1-800-GOT-JUNK — a real, 
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -821,8 +1036,13 @@ I'd love to create a paid UGC video for Calm — an authentic mom self-care mome
 
 Open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -838,8 +1058,13 @@ I'd love to create a paid UGC video for Paired — a real couple moment you can 
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -855,8 +1080,13 @@ I'd love to create a wellness routine video featuring Cowboy Colostrum — you'd
 
 Open to connecting?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -872,8 +1102,13 @@ I'd love to create a paid UGC video for Biom — an authentic daily wellness mom
 
 Open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -889,8 +1124,13 @@ I'd love to create a paid UGC video for Maelys — a real, honest body care rout
 
 Would you be open to discussing rates?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -906,8 +1146,13 @@ I'd love to create a UGC video for Native — an authentic morning routine momen
 
 Open to discussing rates or gifting?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
@@ -923,8 +1168,13 @@ I'd love to create an authentic body care video featuring Saltair — you'd get 
 
 Open to connecting?
 
-Bella
+Bella Valentine
 @vidadelosvalentines
+
+Portfolio: https://vidadelosvalentines.my.canva.site/
+Instagram: https://www.instagram.com/vidadelosvalentines
+TikTok: https://www.tiktok.com/@vidadelosvalentines
+Bio: https://biosites.com/editor#/vidadelosvalentines/
 
 ---
 
