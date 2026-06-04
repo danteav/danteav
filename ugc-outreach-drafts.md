@@ -1,1603 +1,931 @@
 # UGC Outreach Drafts — Bella Valentine (@vidadelosvalentines)
 
-**Creator:** Bella Valentine  
-**Handles:** @vidadelosvalentines (Instagram & TikTok)  
-**Niche:** Lifestyle, family, motherhood, fashion, wellness  
+**Creator:** Bella Valentine | @vidadelosvalentines (Instagram & TikTok)
+**Content:** Day in the life of a mom of four — morning routines, cooking dinner, running errands, arts & crafts, kids activities, lifestyle
 
 ---
 
-## HOW TO USE THIS DOC
-
-- **Paid** = you're requesting a paid UGC deal (you create content, they pay a fee)
-- **Gifted** = you're open to product gifting in exchange for content
-- **IG DM** = send via Instagram DM to the listed handle
-- **Email** = copy/paste and send from your email
-
-Personalize `[specific product]` references as needed before sending.
-
----
-
-## INSTAGRAM DM OUTREACH (Gifted)
-
----
-
-### Jool Baby — @joolbaby | Gifted
-
-> Hi Jool Baby team! I'm Bella Valentine (@vidadelosvalentines) — a lifestyle and family creator on Instagram and TikTok. I've been eyeing your products for a while and love the brand's focus on [specific product, e.g. sound machines / baby monitors]. I'd love to explore a gifted collaboration where I feature your product authentically in my family content. Would you be open to connecting? 😊
-
----
-
-### Katu — @getkatu | Gifted
-
-> Hi Katu! I'm Bella (@vidadelosvalentines) — a family and lifestyle creator on IG and TikTok. I love what you're doing and think your product would be such a natural fit for my audience of moms and families. I'd love to chat about a gifted collab where I create organic, authentic content featuring Katu. Would love to connect!
-
----
-
-### River Ridge Home — @riverridgehome | Gifted
-
-> Hi River Ridge Home! I'm Bella Valentine (@vidadelosvalentines) — a lifestyle creator on Instagram and TikTok sharing family life, home, and everyday moments. Your home products are beautiful and I know my audience would love them. I'd love to discuss a gifted collaboration and create content that showcases your pieces in a real, lived-in home setting. Would love to connect!
-
----
-
-### Conkka — @conkkababies | Gifted
-
-> Hi Conkka! I'm Bella (@vidadelosvalentines) — a family and motherhood creator on Instagram and TikTok. I absolutely love your mission and your products look amazing for little ones. I'd love to collaborate on a gifted basis — creating genuine, heartfelt content featuring Conkka for my audience of moms and parents. Would you be open to chatting?
+> **HOW TO USE:**
+> - Copy/paste the email or DM, fill in any [brackets], and send
+> - For IG DMs: go to the brand's profile and send as a DM
+> - UGC = you deliver raw video files they own; no posting on your page required (mention this if they seem confused about what UGC means)
 
 ---
 
 ---
 
-## EMAIL OUTREACH — PAID UGC
+# 🍳 COOKING DINNER / KITCHEN
 
 ---
 
-### G4Free Activewear — g4freepromotion@gmail.com | Paid / Gifted
+### Caraway — savannah.godber@caraway-home.com | GIFTED
 
-**Subject:** UGC Collaboration Inquiry — @vidadelosvalentines
+**Subject:** Quick collab idea — Caraway
 
-Hi G4Free team,
+Hi Savannah,
 
-My name is Bella Valentine and I'm a lifestyle and family content creator on Instagram and TikTok (@vidadelosvalentines). I create authentic, high-quality content centered around motherhood, wellness, fashion, and everyday family life.
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I make "day in the life of a mom of four" content and cooking dinner is one of my most-watched segments.
 
-I love your activewear line and think it would resonate beautifully with my audience of active moms and families. I'd love to discuss a paid UGC collaboration — creating polished, conversion-focused content that you can use across your own channels and ads.
+I'd love to feature Caraway cookware in an authentic dinner prep video — you'd get the raw files to use in ads or on social, and I'd love a set in exchange.
 
-I'm open to both paid and gifted arrangements depending on the scope. Would you be open to a quick chat or could you share more about your current creator program?
+Open to connecting?
 
-Looking forward to connecting!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
+Bella
+@vidadelosvalentines
 
 ---
 
-### Make Make Organic — social@makemakeorganics.com | Paid
+### True Nature Meats — brinn@truenaturemeats.com | PAID
 
-**Subject:** Paid UGC Collaboration — @vidadelosvalentines
-
-Hi Make Make Organics team,
-
-My name is Bella Valentine, a lifestyle and family creator on Instagram and TikTok (@vidadelosvalentines). My content focuses on motherhood, organic living, family wellness, and everyday moments — which aligns perfectly with everything Make Make Organics stands for.
-
-I'm reaching out to inquire about paid UGC opportunities. I specialize in creating authentic, scroll-stopping content that feels natural and drives engagement. Whether for social ads, product pages, or organic posts, I'd love to put your products in front of my audience of health-conscious moms.
-
-Would love to learn more about your creator collaboration program. Happy to share my portfolio and rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Voloom — karina@ibeautybrands.com | Paid
-
-**Subject:** Paid UGC Inquiry — Voloom x @vidadelosvalentines
-
-Hi Karina,
-
-I hope you're doing well! My name is Bella Valentine, a lifestyle and beauty creator on Instagram and TikTok (@vidadelosvalentines). I'm reaching out about potential paid UGC opportunities with Voloom.
-
-As a creator focused on beauty, fashion, and family life, I know firsthand how much my audience values tools that actually deliver results — and Voloom is exactly that kind of brand. I'd love to create authentic, engaging content that highlights what makes Voloom special, content you can use for ads, social, or product pages.
-
-Would love to connect and discuss rates and deliverables. Happy to share my media kit!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Bijou Build — kylie.colmenero@bijoubuild.com | Paid
-
-**Subject:** UGC Partnership Inquiry — Bella Valentine (@vidadelosvalentines)
-
-Hi Kylie,
-
-I hope this finds you well! I'm Bella Valentine, a lifestyle and family content creator on Instagram and TikTok (@vidadelosvalentines). I create visually compelling, authentic content for brands in the home, family, and lifestyle space.
-
-Bijou Build caught my eye and I'd love to explore a paid UGC collaboration — producing content that showcases your brand in a genuine, engaging way for use across your channels and digital ads.
-
-Would you be open to a quick conversation about partnership opportunities? I'm happy to share rates and examples of my work.
-
-Looking forward to hearing from you!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Sutra — karina@ibeautybrands.com | Paid
-
-**Subject:** Paid UGC Inquiry — Sutra x @vidadelosvalentines
-
-Hi Karina,
-
-My name is Bella Valentine, a lifestyle and beauty creator on Instagram and TikTok (@vidadelosvalentines). I'm reaching out about potential paid UGC opportunities with Sutra.
-
-Hair tools are a staple in my content and I love featuring products that genuinely elevate a routine. I'd love to create high-quality, authentic videos and photos for Sutra that can be used in ads, on your website, or across social channels.
-
-Would love to discuss this further — happy to share my portfolio and rates at your convenience!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Lullaby Earth — lullabyearth@brands.aspireiq.com | Paid
-
-**Subject:** Paid UGC Collaboration — @vidadelosvalentines
-
-Hi Lullaby Earth team,
-
-I'm Bella Valentine, a motherhood and family lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Creating safe, beautiful spaces for little ones is something I'm passionate about, and Lullaby Earth's mission resonates deeply with me and my audience.
-
-I'd love to explore a paid UGC collaboration — producing authentic, high-quality content featuring your mattresses and baby sleep products for use in your marketing, ads, and social channels.
-
-Happy to share my media kit and rates. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Inopro — aleksandra@inoprostrips.com | Paid
-
-**Subject:** Paid UGC Inquiry — @vidadelosvalentines x Inopro
-
-Hi Aleksandra,
-
-I hope you're having a great week! I'm Bella Valentine, a lifestyle and wellness creator on Instagram and TikTok (@vidadelosvalentines). I create authentic content for brands in the beauty, wellness, and family space.
-
-I'd love to discuss a paid UGC collaboration with Inopro — creating engaging, conversion-focused content that showcases your strips in a real, relatable way. My audience of moms and women trusts my recommendations, which makes for genuine, high-performing content.
-
-Would love to share my rates and portfolio. Looking forward to connecting!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Pink Blush — alisha@shoppinkblush.com | Gifted (apply on website)
-
-**Subject:** UGC / Gifted Collaboration — Bella Valentine (@vidadelosvalentines)
-
-Hi Alisha,
-
-I'm Bella Valentine, a lifestyle and fashion creator on Instagram and TikTok (@vidadelosvalentines). I specialize in maternity, postpartum, and everyday fashion content that resonates with moms at every stage.
-
-Pink Blush is a brand I genuinely love — your styles are flattering, affordable, and perfect for the moms in my community. I'd love to be considered for a gifted collaboration and create beautiful, authentic content around your pieces.
-
-I know you may have a website application process and I'm happy to go through that — just wanted to reach out personally first. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Hook and Loom — toby@hookandloom.com | Gifted
-
-**Subject:** Gifted Collaboration Inquiry — @vidadelosvalentines
-
-Hi Toby,
-
-I'm Bella Valentine, a home and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). I love featuring products that bring beauty and warmth to a family home — and Hook and Loom's eco-friendly, handcrafted rugs are exactly the kind of find my audience loves.
-
-I'd love to explore a gifted collaboration where I create genuine, beautiful content featuring your rugs in our home. Would love to chat further!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Partake — grace@candidnetwork.co | Paid
-
-**Subject:** Paid UGC Inquiry — Partake x @vidadelosvalentines
-
-Hi Grace,
-
-I'm Bella Valentine, a family and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Partake is a brand I genuinely admire — allergy-friendly snacks that the whole family can enjoy are such a win, especially for moms like my audience.
-
-I'd love to discuss a paid UGC collaboration, creating fun, authentic content around Partake's products for use in your ads and social channels. Happy to share my rates and examples of past work!
-
-Looking forward to hearing from you.
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Childlife Vitamins — quinci@godfreysocialpr.com | Paid
-
-**Subject:** Paid UGC Partnership — @vidadelosvalentines x Childlife Vitamins
-
-Hi Quinci,
-
-My name is Bella Valentine, a motherhood and family lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Health and wellness for little ones is a topic close to my heart, and Childlife Vitamins is a brand I genuinely trust and recommend.
-
-I'd love to explore a paid UGC collaboration — creating engaging, trustworthy content around your vitamin line for use across your social channels and ads. My audience of moms is highly engaged and always looking for products they can trust.
-
-Would love to connect and discuss rates and deliverables!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### ABC Mouse — grace@candidnetwork.co | Paid
-
-**Subject:** Paid UGC Inquiry — ABC Mouse x @vidadelosvalentines
-
-Hi Grace,
-
-I'm Bella Valentine, a family and parenting creator on Instagram and TikTok (@vidadelosvalentines). Educational content for toddlers and kids is something my audience actively looks for, and ABC Mouse is a trusted name in that space.
-
-I'd love to discuss a paid UGC collaboration — creating fun, relatable content around ABC Mouse that speaks directly to parents of young learners. Happy to share my media kit and rates!
-
-Looking forward to connecting.
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Splocks — mlisi@envirolite.com | Paid
-
-**Subject:** Paid UGC Collaboration — @vidadelosvalentines
-
-Hi there,
-
-I'm Bella Valentine, a lifestyle and family creator on Instagram and TikTok (@vidadelosvalentines). I'm reaching out to inquire about paid UGC opportunities with Splocks.
-
-I love featuring innovative, family-friendly products that solve real everyday problems — and I'd love to create authentic, engaging content for Splocks that you can use across your channels and digital ads.
-
-Happy to share my rates and portfolio. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Fabula Coffee — nereyda@fabulacoffee.com | Paid
-
-**Subject:** Paid UGC Inquiry — Fabula x @vidadelosvalentines
-
-Hi Nereyda,
-
-I'm Bella Valentine, a lifestyle creator on Instagram and TikTok (@vidadelosvalentines). A good cup of coffee is non-negotiable in our household, and Fabula's clean, organic approach is something I genuinely believe in.
-
-I'd love to explore a paid UGC collaboration — creating warm, lifestyle-driven content around Fabula Coffee that resonates with my audience of moms and wellness-minded women. Happy to discuss rates and deliverables!
-
-Looking forward to hearing from you.
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Formuland — hailey@theupprhand.com | Paid
-
-**Subject:** Paid UGC Collaboration — @vidadelosvalentines x Formuland
-
-Hi Hailey,
-
-I'm Bella Valentine, a motherhood and family lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Baby formula is one of the most trust-sensitive categories for new moms, and Formuland's European formula options are something my audience has a lot of questions and curiosity about.
-
-I'd love to discuss a paid UGC collaboration — creating honest, informative, and engaging content that helps new parents feel confident in their formula choices. Happy to share my media kit and rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Arbor Made Candles — nate@arbormade.co | Paid
-
-**Subject:** Paid UGC Inquiry — Arbor Made x @vidadelosvalentines
-
-Hi Nate,
-
-I'm Bella Valentine, a home and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). I love featuring products that bring warmth and intention to everyday home life — and Arbor Made's candles are exactly the kind of beautiful, quality find my audience loves.
-
-I'd love to explore a paid UGC collaboration, creating cozy, aesthetic content around your candles for use in your ads and social channels. Would love to chat about rates and deliverables!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Jones Road Beauty — dani@rickhousemedia.com | Paid
-
-**Subject:** Paid UGC Inquiry — Jones Road x @vidadelosvalentines
-
-Hi Dani,
-
-I'm Bella Valentine, a beauty and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Jones Road is a brand I absolutely love — clean, effortless beauty that actually works resonates so deeply with my audience of women who want to look and feel their best without a complicated routine.
-
-I'd love to discuss a paid UGC collaboration — creating authentic, glowy content that shows off what makes Jones Road special. Happy to share my rates and portfolio!
-
-Looking forward to connecting.
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Little Adventures — contact@littleadventures.com | Gifted
-
-**Subject:** Gifted Collaboration Inquiry — @vidadelosvalentines
-
-Hi Little Adventures team,
-
-I'm Bella Valentine, a family and parenting creator on Instagram and TikTok (@vidadelosvalentines). Dress-up and imaginative play content is pure magic to create, and Little Adventures' durable, machine-washable costumes are exactly what parents in my community love and look for.
-
-I'd love to explore a gifted collaboration — creating playful, joyful content featuring your costumes in real family moments. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Maneki Diapers — sg@manekijapan.com | Paid
-
-**Subject:** Paid UGC Partnership — @vidadelosvalentines x Maneki Diapers
-
-Hi there,
-
-I'm Bella Valentine, a motherhood and family creator on Instagram and TikTok (@vidadelosvalentines). Baby essentials content is some of my most-engaged posts, and I'd love to create paid UGC content for Maneki Diapers.
-
-My audience of new and expecting moms is always looking for trusted diaper recommendations, making this a natural fit. I'd love to discuss rates, deliverables, and creative direction — happy to share my media kit!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Emmafy — collab@emmafy.com | Paid
-
-**Subject:** Paid UGC Inquiry — @vidadelosvalentines x Emmafy
-
-Hi Emmafy team,
-
-I'm Bella Valentine, a lifestyle creator on Instagram and TikTok (@vidadelosvalentines). I'd love to learn more about paid UGC opportunities with Emmafy and explore how we might create engaging content together for your brand.
-
-My content focuses on family life, fashion, wellness, and everyday moments — and I'd love to put Emmafy in front of my audience in an authentic, compelling way. Happy to share my portfolio and rates!
-
-Looking forward to hearing from you.
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Love Stitch — sydney@therevivalagency.com | Paid
-
-**Subject:** Paid UGC Collaboration — @vidadelosvalentines x Love Stitch
-
-Hi Sydney,
-
-I'm Bella Valentine, a fashion and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Love Stitch has such a beautiful, effortlessly chic aesthetic that I know would resonate with my audience of fashion-forward women.
-
-I'd love to discuss a paid UGC collaboration — creating stunning, on-brand content showcasing your pieces in real lifestyle moments. Happy to share my rates and examples of past fashion content!
-
-Looking forward to connecting.
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Paired App — eira.engedal@paired.com | Paid
-
-**Subject:** Paid UGC Inquiry — Paired x @vidadelosvalentines
-
-Hi Eira,
-
-I'm Bella Valentine, a lifestyle and family creator on Instagram and TikTok (@vidadelosvalentines). As someone who creates content around family life and relationships, the Paired App is something I genuinely believe in — keeping couples connected is so important, especially in the busy season of raising a family.
-
-I'd love to explore a paid UGC collaboration, creating heartfelt, authentic content around Paired for use in your ads and social channels. Happy to discuss rates and deliverables!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Names For Good — maggie@namesforgood.com | Paid
-
-**Subject:** Paid UGC Partnership — @vidadelosvalentines x Names For Good
-
-Hi Maggie,
-
-I'm Bella Valentine, a family and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). I love the mission behind Names For Good — purposeful, meaningful gifts that celebrate life's biggest moments are exactly what my audience loves.
-
-I'd love to discuss a paid UGC collaboration — creating warm, story-driven content around your products. Happy to share my rates and media kit!
-
-Looking forward to connecting.
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Tiny Exploring — tinyexplorings@gmail.com | Paid
-
-**Subject:** Paid UGC Inquiry — @vidadelosvalentines
-
-Hi Tiny Exploring team,
-
-I'm Bella Valentine, a family and adventure lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Getting outside with little ones and documenting those moments is such a big part of what I do — and Tiny Exploring feels like a perfect brand fit.
-
-I'd love to explore a paid UGC collaboration. Happy to share my rates and portfolio!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Zonli — Zonliroland@creator.noxinfluencer.com | Gifted
-
-**Subject:** Gifted UGC Collaboration Inquiry — @vidadelosvalentines
-
-Hi Zonli team,
-
-I'm Bella Valentine, a home and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Cozy, functional home products are a staple in my content, and Zonli's weighted blankets and home comfort items are exactly what my audience loves.
-
-I'd love to explore a gifted collaboration and create beautiful, cozy content around your products for my feed and TikTok. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Halara — marketing.tiana@halara.com | Gifted
-
-**Subject:** Gifted Collaboration Inquiry — @vidadelosvalentines x Halara
-
-Hi Tiana,
-
-I'm Bella Valentine, a fashion and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Halara's activewear line is something I genuinely love — comfortable, stylish, and perfect for the active mom on the go.
-
-I'd love to explore a gifted collaboration where I create authentic try-on and lifestyle content featuring Halara. My audience of active, style-conscious moms would love it! Would love to connect.
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Baublebar — lara@baublebar.com | Gifted
-
-**Subject:** Gifted Collaboration Inquiry — @vidadelosvalentines x Baublebar
-
-Hi Lara,
-
-I'm Bella Valentine, a fashion and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). I'm a huge Baublebar fan — your pieces are fun, affordable, and so giftable, which makes them perfect content for my audience of fashion-loving women.
-
-I'd love to explore a gifted collaboration and create stunning jewelry styling content around Baublebar. Would love to chat!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Tasty Tie Kids Teether — dan@tastytie.com | Paid
-
-**Subject:** Paid UGC Inquiry — @vidadelosvalentines x Tasty Tie
-
-Hi Dan,
-
-I'm Bella Valentine, a motherhood and family creator on Instagram and TikTok (@vidadelosvalentines). Baby feeding and teething products are some of my most-engaged content topics, and Tasty Tie is such a clever, innovative solution that I know my audience of moms would love.
-
-I'd love to discuss a paid UGC collaboration — creating fun, relatable baby content around Tasty Tie for your ads and social channels. Happy to share my rates and media kit!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Modern Gents Jewelry — social@modgents.com | Paid
-
-**Subject:** Paid UGC Collaboration — @vidadelosvalentines x Modern Gents
-
-Hi Modern Gents team,
-
-I'm Bella Valentine, a lifestyle and fashion creator on Instagram and TikTok (@vidadelosvalentines). Gifting and jewelry content performs extremely well with my audience, and Modern Gents' accessible fine jewelry makes for such compelling "gift ideas" and "anniversary" style content.
-
-I'd love to explore a paid UGC collaboration — creating elegant, story-driven content around your pieces. Happy to share rates and examples!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Quince — lily.goldberg@onequince.com | Gifted
-
-**Subject:** Gifted Collaboration Inquiry — @vidadelosvalentines x Quince
-
-Hi Lily,
-
-I'm Bella Valentine, a fashion and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Quince is one of those brands I genuinely recommend to my followers — quality, sustainable pieces at an accessible price point are exactly what today's conscious shopper is looking for.
-
-I'd love to explore a gifted collaboration and create beautiful, authentic fashion content around Quince's collection. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Verifyt Fashion App — jmoreno@verifyt.com | Paid
-
-**Subject:** Paid UGC Inquiry — @vidadelosvalentines x Verifyt
-
-Hi,
-
-I'm Bella Valentine, a fashion and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Fashion tech and shopping apps are something my audience is very interested in, and I'd love to explore a paid UGC collaboration with Verifyt — creating engaging, authentic content that drives downloads and awareness.
-
-Happy to share my rates and media kit. Looking forward to connecting!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Fabletics — KyLau@fabletics.com | Gifted
-
-**Subject:** Gifted Collaboration Inquiry — @vidadelosvalentines x Fabletics
-
-Hi Ky,
-
-I'm Bella Valentine, a fashion and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Fabletics is a brand I've always admired — stylish, functional activewear that actually flatters every body type, perfect for the active moms and women in my community.
-
-I'd love to explore a gifted collaboration and create vibrant, motivating content around Fabletics' latest collections. Would love to chat!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Maelove Skincare — rp@glohbal.com | Paid
-
-**Subject:** Paid UGC Inquiry — Maelove x @vidadelosvalentines
-
-Hi there,
-
-I'm Bella Valentine, a beauty and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Clean, science-backed skincare is a category my audience is obsessed with, and Maelove's commitment to effective, affordable formulas is something I genuinely appreciate.
-
-I'd love to explore a paid UGC collaboration — creating honest, glowing before/after and routine content around Maelove products for your ads and social channels. Happy to share my rates and media kit!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Three Wishes Cereal — tracy@threewishescereal.com | Paid
-
-**Subject:** Paid UGC Collaboration — @vidadelosvalentines x Three Wishes
-
-Hi Tracy,
-
-I'm Bella Valentine, a family and wellness creator on Instagram and TikTok (@vidadelosvalentines). Healthy breakfast options for the whole family are a huge topic in my content, and Three Wishes Cereal is exactly the kind of better-for-you brand my audience loves to discover.
-
-I'd love to discuss a paid UGC collaboration — creating fun, family-centered morning routine content featuring Three Wishes. Happy to share my rates!
-
-Looking forward to connecting.
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Lahloya Maternity — partnerships@lahloya.com | Paid
-
-**Subject:** Paid UGC Inquiry — Lahloya x @vidadelosvalentines
-
-Hi Lahloya team,
-
-I'm Bella Valentine, a motherhood and fashion creator on Instagram and TikTok (@vidadelosvalentines). Maternity and postpartum fashion is a topic very close to my heart and my audience, and Lahloya's beautiful maternity pieces are exactly what expecting moms in my community are searching for.
-
-I'd love to discuss a paid UGC collaboration — creating stunning maternity fashion content for your social channels and ads. Happy to share my rates and portfolio!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Toki Mats — partnerships@tokimats.com | Gifted
-
-**Subject:** Gifted Collaboration Inquiry — @vidadelosvalentines x Toki Mats
-
-Hi Toki Mats team,
-
-I'm Bella Valentine, a motherhood and family creator on Instagram and TikTok (@vidadelosvalentines). Baby play mat content is some of my highest-performing posts, and Toki Mats' beautiful, non-toxic designs are something my audience consistently asks about.
-
-I'd love to explore a gifted collaboration and create gorgeous, authentic content featuring your play mats in real family moments. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Loopy Phone Cases — kendallh@teamloopy.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x Loopy Cases
-
-Hi Kendall,
-
-I'm Bella Valentine, a lifestyle creator on Instagram and TikTok (@vidadelosvalentines). As a mom who's always on the go, a reliable, stylish phone case is a daily essential — and Loopy Cases are something I've genuinely had on my wishlist.
-
-I'd love to explore a gifted collaboration and create fun, authentic content featuring Loopy Cases in my everyday life. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Maelys Skincare — ugc@maelyscosmetics.com | Paid
-
-**Subject:** Paid UGC Inquiry — Maelys x @vidadelosvalentines
-
-Hi Maelys team,
-
-I'm Bella Valentine, a beauty and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Body care and postpartum skin confidence are topics that deeply resonate with my audience of moms, and Maelys' targeted treatments are exactly the kind of product they love to discover.
-
-I'd love to discuss a paid UGC collaboration — creating honest, compelling before/after and routine content around your products for your ads and social channels. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Magic Spoon Cereal — agcreators@magicspoon.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x Magic Spoon
-
-Hi Magic Spoon team,
-
-I'm Bella Valentine, a family and wellness creator on Instagram and TikTok (@vidadelosvalentines). High-protein, guilt-free cereal that actually tastes amazing? My audience is obsessed with this category and Magic Spoon is one of the most talked-about brands in that space.
-
-I'd love to explore a gifted collaboration and create fun, authentic breakfast and snack content around Magic Spoon. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Kendamil Baby Formula — sasha.bonar@kendamil.uk | Paid
-
-**Subject:** Paid UGC Inquiry — Kendamil x @vidadelosvalentines
-
-Hi Sasha,
-
-I'm Bella Valentine, a motherhood and family lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Kendamil's commitment to whole milk, clean-ingredient baby formula is something I deeply respect, and feeding decisions are a hugely important and trusted topic in my community.
-
-I'd love to discuss a paid UGC collaboration — creating honest, warm, and informative content around Kendamil for your ads and social channels. Happy to share my rates and media kit!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### GLDN Jewelry — pr@gldn.com | Paid
-
-**Subject:** Paid UGC Inquiry — GLDN x @vidadelosvalentines
-
-Hi GLDN team,
-
-I'm Bella Valentine, a fashion and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Personalized, dainty jewelry is something I feature constantly — it's among my highest-performing content — and GLDN's customizable pieces are beautiful and perfect for my audience.
-
-I'd love to discuss a paid UGC collaboration, creating stunning jewelry content for your ads and social channels. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Renzo Baby Gear — roger@renzobaby.com | Paid
-
-**Subject:** Paid UGC Collaboration — @vidadelosvalentines x Renzo
-
-Hi Roger,
-
-I'm Bella Valentine, a motherhood and family creator on Instagram and TikTok (@vidadelosvalentines). Baby gear is one of the most-researched purchases new parents make, and authentic, real-world content makes all the difference. I'd love to create paid UGC for Renzo — engaging, trust-building content for your ads and social channels.
-
-Happy to share my rates and media kit. Looking forward to connecting!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### V&Co Haircare — rylie@vandcobeauty.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x V&Co
-
-Hi Rylie,
-
-I'm Bella Valentine, a beauty and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Hair care is a consistent pillar in my content and V&Co's clean, effective formulas are exactly what my beauty-focused audience loves to discover.
-
-I'd love to explore a gifted collaboration and create authentic, results-focused hair content around your line. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Baltic Born — jessica@balticborn.com | Paid
-
-**Subject:** Paid UGC Inquiry — Baltic Born x @vidadelosvalentines
-
-Hi Jessica,
-
-I'm Bella Valentine, a fashion and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Baltic Born's dreamy, coordinating family and women's styles are a dream to feature — and family fashion content performs incredibly well with my engaged audience.
-
-I'd love to explore a paid UGC collaboration — creating beautiful, lifestyle-driven content for your ads and social channels. Happy to share my rates and portfolio!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Puff Cookies — alexis.grabel@puffcookies.com | Paid
-
-**Subject:** Paid UGC Inquiry — Puff Cookies x @vidadelosvalentines
-
-Hi Alexis,
-
-I'm Bella Valentine, a family and food lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Better-for-you snacks for the whole family are always a hit with my audience, and Puff Cookies sounds like such a fun, craveable brand.
-
-I'd love to discuss a paid UGC collaboration — creating fun, snack-focused content for your ads and social channels. Happy to share my rates!
-
-Looking forward to connecting.
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### PUMIEY — lia@c202wear.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x PUMIEY
-
-Hi Lia,
-
-I'm Bella Valentine, a fashion and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). PUMIEY's Amazon basics are such a great find — comfortable, stylish everyday essentials that my audience of busy moms loves to discover.
-
-I'd love to explore a gifted collaboration and create authentic, everyday styling content around your pieces. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Meideya Jewelry — rita@meideyajewelry.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x Meideya
-
-Hi Rita,
-
-I'm Bella Valentine, a fashion and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Affordable, elegant jewelry is one of my favorite things to feature, and Meideya's pieces are gorgeous — exactly the kind of find my audience loves.
-
-I'd love to explore a gifted collaboration and create beautiful jewelry styling content. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### True Nature Meats — brinn@truenaturemeats.com | Paid
-
-**Subject:** Paid UGC Inquiry — True Nature Meats x @vidadelosvalentines
+**Subject:** UGC Creator Inquiry — True Nature Meats
 
 Hi Brinn,
 
-I'm Bella Valentine, a family and wellness creator on Instagram and TikTok (@vidadelosvalentines). Clean, high-quality protein is something I'm passionate about and my audience is very health-conscious. True Nature Meats' commitment to clean ingredients and quality sourcing is exactly the kind of brand story that resonates in my community.
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — my content is "day in the life of a mom of four," and cooking clean, quality dinners for my family is a huge part of what I film.
 
-I'd love to discuss a paid UGC collaboration — creating authentic, appetizing food and lifestyle content for your ads and social channels. Happy to share my rates!
+I'd love to create a paid UGC video for True Nature Meats — a real family dinner prep moment you can use in ads or on your channels.
 
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
 
 ---
 
-### Vitality — cbuchanan@shopvitality.com | Gifted
+### Grubhub — BTiesi@golin.com | PAID
 
-**Subject:** Gifted Collaboration — @vidadelosvalentines x Vitality
+**Subject:** UGC Creator Inquiry — Grubhub
 
 Hi there,
 
-I'm Bella Valentine, a wellness and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Health and vitality are core themes in my content and I'd love to explore a gifted collaboration with Vitality — creating authentic, wellness-forward content for my engaged audience. Would love to connect!
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four, and "those nights when mom doesn't cook" are some of my most relatable content.
 
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
+I'd love to create a paid UGC video for Grubhub — an honest, funny, real-mom moment you can use in ads.
 
----
+Open to chatting about rates?
 
-### RIND Snacks — aelfanbaum@kirfoods.com | Paid
-
-**Subject:** Paid UGC Inquiry — RIND Snacks x @vidadelosvalentines
-
-Hi there,
-
-I'm Bella Valentine, a family and wellness creator on Instagram and TikTok (@vidadelosvalentines). Better-for-you snacks are always a hit with my community, and RIND's whole-fruit snacks are such a unique, nutritious concept that my audience would love.
-
-I'd love to discuss a paid UGC collaboration — creating fun, snack-focused content for your ads and social channels. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Amara Toddler Snacks — creators@amaraorganicfoods.com | Paid
-
-**Subject:** Paid UGC Inquiry — Amara x @vidadelosvalentines
-
-Hi Amara team,
-
-I'm Bella Valentine, a motherhood and family creator on Instagram and TikTok (@vidadelosvalentines). Organic, wholesome snacks for toddlers are one of my most popular content topics, and Amara's clean-ingredient line is exactly what my audience of health-conscious moms is looking for.
-
-I'd love to explore a paid UGC collaboration — creating authentic, kid-approved snack content for your ads and social channels. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Caraway — savannah.godber@caraway-home.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x Caraway
-
-Hi Savannah,
-
-I'm Bella Valentine, a home and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Caraway is a brand I genuinely admire and reference to my audience regularly — beautiful, non-toxic cookware that makes the kitchen a joy is exactly what my home-focused followers love.
-
-I'd love to explore a gifted collaboration and create stunning, aspirational kitchen and cooking content around Caraway. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Cowboy Colostrum — carly@cowboycolostrom.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x Cowboy Colostrum
-
-Hi Carly,
-
-I'm Bella Valentine, a health and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Gut health and wellness supplements are a huge topic in my community, and Cowboy Colostrum is exactly the kind of functional wellness brand my audience loves to explore.
-
-I'd love to explore a gifted collaboration and create authentic, wellness-driven content around your product. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### 1-800-GOT-JUNK — megan.connery@1800gotjunk.com | Paid
-
-**Subject:** Paid UGC Inquiry — 1-800-GOT-JUNK x @vidadelosvalentines
-
-Hi Megan,
-
-I'm Bella Valentine, a home and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Home organization and decluttering content is extremely popular with my audience, and a "clearing the clutter" transformation video featuring 1-800-GOT-JUNK is exactly the kind of satisfying, relatable content that goes viral.
-
-I'd love to discuss a paid UGC collaboration — creating an engaging, real-life before/after story around your service for your ads and social channels. Happy to share my rates!
-
-Looking forward to connecting.
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Living Proof — vjones@livingproof.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x Living Proof
-
-Hi there,
-
-I'm Bella Valentine, a beauty and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Science-backed hair care is something I love to feature, and Living Proof's clinically proven results make for compelling, authentic content. I'd love to explore a gifted collaboration and create beautiful hair content around your line. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Saltair — lourdes@saltair.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x Saltair
-
-Hi Lourdes,
-
-I'm Bella Valentine, a beauty and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Elevated body care is a category my audience is passionate about, and Saltair's aesthetic, clean formulas are such a beautiful brand to feature. I'd love to explore a gifted collaboration and create gorgeous, bathroom shelf content around Saltair. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Guava Family — eden@pilothouse.co | Paid
-
-**Subject:** Paid UGC Inquiry — Guava Family x @vidadelosvalentines
-
-Hi Eden,
-
-I'm Bella Valentine, a motherhood and family creator on Instagram and TikTok (@vidadelosvalentines). Baby travel gear is one of the most-researched product categories for new parents, and Guava Family's innovative, portable products are exactly what my audience is looking for.
-
-I'd love to discuss a paid UGC collaboration — creating authentic travel and family lifestyle content around your products for your ads and social channels. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Nixplay — sherazade.karim@nix-digital.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x Nixplay
-
-Hi Sherazade,
-
-I'm Bella Valentine, a family and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Digital photo frames are such a meaningful, giftable product — and Nixplay's beautiful frames are perfect for the family memory-making content I create. I'd love to explore a gifted collaboration and create heartfelt, family-centered content around Nixplay. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### En Route Jewelry — kelsey@enroutejewelry.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x En Route Jewelry
-
-Hi Kelsey,
-
-I'm Bella Valentine, a fashion and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Travel-inspired, meaningful jewelry is such a beautiful niche and En Route's pieces are stunning. Jewelry content consistently performs well with my audience and I'd love to explore a gifted collaboration featuring your collection. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Ryl Tea — ambassadors@Drinkryl.com | Paid
-
-**Subject:** Paid UGC Inquiry — Ryl Tea x @vidadelosvalentines
-
-Hi Ryl Tea team,
-
-I'm Bella Valentine, a wellness and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Functional, great-tasting beverages are something my wellness-minded audience loves, and Ryl Tea's alcohol-alternative positioning is such a compelling story to tell.
-
-I'd love to explore a paid UGC collaboration — creating cozy, lifestyle-driven content around your teas for your ads and social channels. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### SubLuna Kids Protein — collabs@shopsubluna.com | Paid
-
-**Subject:** Paid UGC Inquiry — SubLuna x @vidadelosvalentines
-
-Hi SubLuna team,
-
-I'm Bella Valentine, a motherhood and family creator on Instagram and TikTok (@vidadelosvalentines). Getting enough protein into picky toddlers is a huge pain point for moms in my community, and SubLuna's kids protein drinks are exactly the kind of solution they're looking for.
-
-I'd love to discuss a paid UGC collaboration — creating fun, relatable mom and toddler content around your product. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Sand Cloud — monica@sandcloud.com | Paid
-
-**Subject:** Paid UGC Inquiry — Sand Cloud x @vidadelosvalentines
-
-Hi Monica,
-
-I'm Bella Valentine, a lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Beach and outdoor lifestyle content is something I love creating, and Sand Cloud's sustainable, beautiful towels and apparel are such a natural fit for my aesthetic and audience.
-
-I'd love to explore a paid UGC collaboration — creating bright, summery lifestyle content for your ads and social channels. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### An Action A Day Clothing — marketing@anactionad.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x An Action A Day
-
-Hi there,
-
-I'm Bella Valentine, a fashion and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Purpose-driven fashion is something my audience deeply connects with, and An Action A Day's message is powerful and inspiring. I'd love to explore a gifted collaboration and create authentic, values-aligned fashion content around your brand. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Alo Yoga — alyssa.rara@aloyoga.com
-
-**Subject:** UGC Collaboration Inquiry — @vidadelosvalentines x Alo Yoga
-
-Hi Alyssa,
-
-I'm Bella Valentine, a fashion and wellness creator on Instagram and TikTok (@vidadelosvalentines). Alo Yoga is a brand my audience loves — the intersection of luxury activewear, mindfulness, and lifestyle is exactly the aesthetic and values my content centers around.
-
-I'd love to explore a UGC collaboration and create elevated, aspirational content featuring your collection. Happy to discuss rates or gifting — would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Aloisia Beauty — jeff@aloisiabeauty.com
-
-**Subject:** UGC Collaboration Inquiry — @vidadelosvalentines x Aloisia
-
-Hi Jeff,
-
-I'm Bella Valentine, a beauty and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Clean, elevated beauty is a pillar of my content, and Aloisia's formulations are something I'd love to feature authentically for my engaged beauty audience.
-
-I'd love to explore a UGC collaboration — happy to discuss rates or gifting. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### ThirdLove — ktorres@thirdlove.com
-
-**Subject:** UGC Collaboration Inquiry — @vidadelosvalentines x ThirdLove
-
-Hi K,
-
-I'm Bella Valentine, a lifestyle and fashion creator on Instagram and TikTok (@vidadelosvalentines). ThirdLove's commitment to inclusive, comfortable intimates is a message my audience of women genuinely connects with — and this kind of authentic product story is my specialty.
-
-I'd love to explore a UGC collaboration — happy to discuss rates or gifting. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Native Deodorant — katie@nativeco.com
-
-**Subject:** UGC Collaboration Inquiry — @vidadelosvalentines x Native
-
-Hi Katie,
-
-I'm Bella Valentine, a wellness and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Clean personal care is something my audience cares deeply about, and Native is one of the most trusted names in the space. I'd love to explore a UGC collaboration — happy to discuss rates or gifting. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Navy Hair Care — sos@navyhaircare.com
-
-**Subject:** UGC Collaboration Inquiry — @vidadelosvalentines x Navy
-
-Hi Navy team,
-
-I'm Bella Valentine, a beauty and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Hair care transformation content is among my most-watched videos, and Navy's science-backed formulas would make for compelling, results-driven content for my audience. I'd love to explore a UGC collaboration — happy to discuss rates or gifting!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Melt Skincare — info@meltskincare.com
-
-**Subject:** UGC Collaboration Inquiry — @vidadelosvalentines x Melt
-
-Hi Melt team,
-
-I'm Bella Valentine, a skincare and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Luxurious, sensorial skincare is something my audience loves to discover, and Melt's balm-based formulas look like a dream to feature. I'd love to explore a UGC collaboration — happy to discuss rates or gifting!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Kindred Bravely — hello@kindredbravely.com
-
-**Subject:** UGC Collaboration Inquiry — @vidadelosvalentines x Kindred Bravely
-
-Hi Kindred Bravely team,
-
-I'm Bella Valentine, a motherhood and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Maternity and nursing clothing is a topic so close to my heart and my audience's — comfort and style during pregnancy and postpartum matter so much, and Kindred Bravely delivers both. I'd love to explore a UGC collaboration — happy to discuss rates or gifting!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Koi Footwear — collaborations@koifootwear.com
-
-**Subject:** UGC Collaboration Inquiry — @vidadelosvalentines x Koi
-
-Hi Koi team,
-
-I'm Bella Valentine, a fashion and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Cute, comfortable footwear is something my audience is always shopping for, and Koi's styles are exactly the kind of find I love to feature. I'd love to explore a UGC collaboration — happy to discuss rates or gifting!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Be Love Electrolytes — creator@drink.love | Paid
-
-**Subject:** Paid UGC Inquiry — Be Love x @vidadelosvalentines
-
-Hi Be Love team,
-
-I'm Bella Valentine, a wellness and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Hydration and functional wellness drinks are a hugely popular topic with my health-conscious audience, and Be Love's clean electrolyte formula is exactly the kind of product they love.
-
-I'd love to explore a paid UGC collaboration — creating energetic, lifestyle-driven content for your ads and social channels. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### PatPat — olivia@influencer.patpatmail.com | Paid
-
-**Subject:** Paid UGC Inquiry — PatPat x @vidadelosvalentines
-
-Hi Olivia,
-
-I'm Bella Valentine, a family and fashion creator on Instagram and TikTok (@vidadelosvalentines). Affordable, adorable kids and family fashion is one of the most shareable content categories I create, and PatPat's huge selection and great prices make it such a compelling brand for my mom audience.
-
-I'd love to discuss a paid UGC collaboration — creating fun, family fashion haul content for your ads and social channels. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Wizard AI — audrey.orkild@wizard.com | Paid
-
-**Subject:** Paid UGC Inquiry — Wizard AI x @vidadelosvalentines
-
-Hi Audrey,
-
-I'm Bella Valentine, a lifestyle creator on Instagram and TikTok (@vidadelosvalentines). AI and productivity tools that make life easier are something my audience is curious and excited about, and I'd love to create engaging, authentic content around Wizard AI that shows real-world value in everyday life.
-
-I'd love to discuss a paid UGC collaboration — happy to share my rates and media kit!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Elevated Faith — caroline@elevatedfaith.com | Paid
-
-**Subject:** Paid UGC Inquiry — Elevated Faith x @vidadelosvalentines
-
-Hi Caroline,
-
-I'm Bella Valentine, a lifestyle and faith-inspired creator on Instagram and TikTok (@vidadelosvalentines). Faith-forward jewelry and apparel resonate deeply with my community, and Elevated Faith's message is beautiful and powerful. I'd love to explore a paid UGC collaboration — creating meaningful, inspirational content around your brand. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Little Bible Stories — contact@littlebiblestories.com | Paid
-
-**Subject:** Paid UGC Inquiry — Little Bible Stories x @vidadelosvalentines
-
-Hi Little Bible Stories team,
-
-I'm Bella Valentine, a family and faith-inspired creator on Instagram and TikTok (@vidadelosvalentines). Children's faith content is a topic I love and my audience of faith-based parents actively looks for trusted resources for their kids. I'd love to discuss a paid UGC collaboration around your books and stories. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### EDJY Nails — noelle.lucas@edjy.influencer.sproutsocial-mail.com | Paid
-
-**Subject:** Paid UGC Inquiry — EDJY x @vidadelosvalentines
-
-Hi Noelle,
-
-I'm Bella Valentine, a beauty and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Nail content is wildly popular with my audience and at-home nail solutions are always a hit. EDJY's nail products look so fun and I'd love to create engaging, satisfying nail content for your ads and social channels through a paid UGC collaboration. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Chocxo — alejandra@commercetheory.io | Paid
-
-**Subject:** Paid UGC Inquiry — Chocxo x @vidadelosvalentines
-
-Hi Alejandra,
-
-I'm Bella Valentine, a food and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Better-for-you chocolate that actually tastes indulgent is the kind of product my audience goes wild for, and Chocxo's clean-ingredient approach is exactly that. I'd love to discuss a paid UGC collaboration — creating delicious, lifestyle-driven content for your ads and social channels. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Just Ingredients — ugccreators@justingredients.com | Paid
-
-**Subject:** Paid UGC Inquiry — Just Ingredients x @vidadelosvalentines
-
-Hi Just Ingredients team,
-
-I'm Bella Valentine, a wellness and family creator on Instagram and TikTok (@vidadelosvalentines). Clean supplements and protein powders are something my health-focused audience actively searches for, and Just Ingredients' commitment to simple, real ingredients is a brand story I love telling. I'd love to discuss a paid UGC collaboration — happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Fullify — florencia@intensifynow.com | Paid
-
-**Subject:** Paid UGC Inquiry — Fullify x @vidadelosvalentines
-
-Hi Florencia,
-
-I'm Bella Valentine, a wellness and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). I'd love to learn more about Fullify and explore a paid UGC collaboration — creating authentic, engaging content for your ads and social channels that resonates with my community. Happy to share my rates and media kit!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Nurri — emily.stenseth@segalcommunications.com | Paid
-
-**Subject:** Paid UGC Inquiry — Nurri x @vidadelosvalentines
-
-Hi Emily,
-
-I'm Bella Valentine, a motherhood and wellness creator on Instagram and TikTok (@vidadelosvalentines). Maternal and postpartum nutrition is a deeply important topic for my community of moms, and I'd love to explore a paid UGC collaboration with Nurri — creating honest, trustworthy content around your products for your ads and social channels. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
+Bella
+@vidadelosvalentines
 
 ---
 
 ---
 
-## EMAIL OUTREACH — MULTI-BRAND BATCH (Mixed)
+# ☕ MORNING ROUTINE
 
 ---
 
-### Medly — kyle@drinkmedly.com | Paid
+### Fabula Coffee — nereyda@fabulacoffee.com | PAID
 
-**Subject:** Paid UGC Inquiry — Medly x @vidadelosvalentines
+**Subject:** UGC Creator Inquiry — Fabula Coffee
 
-Hi Kyle,
+Hi Nereyda,
 
-I'm Bella Valentine, a wellness and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). I'd love to explore a paid UGC collaboration with Medly — creating engaging, authentic content that resonates with my health-conscious audience. Happy to share my rates and media kit!
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — my content is "day in the life of a mom of four" and the morning coffee moment is sacred content in my house.
 
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
+I'd love to create a paid UGC video for Fabula — a real morning routine clip you can use in ads or on your channels.
 
----
+Would you be open to discussing rates?
 
-### Our Little Treasures — meng@ourlittletreasures.com | Paid
-
-**Subject:** Paid UGC Inquiry — Our Little Treasures x @vidadelosvalentines
-
-Hi Meng,
-
-I'm Bella Valentine, a family and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Baby and children's keepsakes and treasures are such heartfelt content to create, and I'd love to explore a paid UGC collaboration with Our Little Treasures. Happy to share my rates and media kit!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
+Bella
+@vidadelosvalentines
 
 ---
 
-### Javvy Coffee — noah@javvycoffee.com | Paid
+### Javvy Coffee — noah@javvycoffee.com | PAID
 
-**Subject:** Paid UGC Inquiry — Javvy x @vidadelosvalentines
+**Subject:** UGC Creator Inquiry — Javvy Coffee
 
 Hi Noah,
 
-I'm Bella Valentine, a lifestyle creator on Instagram and TikTok (@vidadelosvalentines). A great cup of coffee is a non-negotiable in our household, and Javvy's concentrated coffee concept is so unique and interesting — exactly the kind of product my audience loves to discover. I'd love to explore a paid UGC collaboration. Happy to share my rates!
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I create "day in the life of a mom of four" content, and coffee is the first thing I film every morning.
 
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
+I'd love to create a paid UGC video for Javvy — an authentic morning moment you can run in ads or organic social.
 
----
+Open to connecting about rates?
 
-### Thesis — asal@tappedcontent.com | Paid
-
-**Subject:** Paid UGC Inquiry — Thesis x @vidadelosvalentines
-
-Hi Asal,
-
-I'm Bella Valentine, a wellness and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Personalized nootropics for focus and energy are fascinating to my audience of busy moms and women — and Thesis' customized approach is a compelling story. I'd love to explore a paid UGC collaboration. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
+Bella
+@vidadelosvalentines
 
 ---
 
-### Tymo Beauty — clara.x@tymobeauty.com
+### Nutpods — miya.mukai@nutpods.com | PAID
 
-**Subject:** UGC Collaboration Inquiry — @vidadelosvalentines x Tymo
-
-Hi Clara,
-
-I'm Bella Valentine, a beauty and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Hair styling tools are a core part of my beauty content and Tymo's innovative tools are exactly the kind of product my audience loves — effective, affordable, and easy to use at home. I'd love to explore a UGC collaboration. Happy to discuss rates or gifting!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### LesserEvil Snacks — diana@htcollective.com | Paid
-
-**Subject:** Paid UGC Inquiry — LesserEvil x @vidadelosvalentines
-
-Hi Diana,
-
-I'm Bella Valentine, a family and wellness creator on Instagram and TikTok (@vidadelosvalentines). Better-for-you snacks are among my most-engaged content topics, and LesserEvil's clean, popcorn-based snacks are a favorite in health-conscious communities. I'd love to explore a paid UGC collaboration. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Biom — savannah@getbiom.co | Paid
-
-**Subject:** Paid UGC Inquiry — Biom x @vidadelosvalentines
-
-Hi Savannah,
-
-I'm Bella Valentine, a wellness and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Gut health and biome wellness are topics my audience is deeply interested in, and I'd love to create authentic, educational paid UGC content for Biom. Happy to share my rates and media kit!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Wonderbly Books — nic@wonderbly.com | Paid
-
-**Subject:** Paid UGC Inquiry — Wonderbly x @vidadelosvalentines
-
-Hi Nic,
-
-I'm Bella Valentine, a family and parenting creator on Instagram and TikTok (@vidadelosvalentines). Personalized children's books are one of the most heartwarming things I feature — and the reaction content they generate is priceless. Wonderbly's beautiful books would make for incredible UGC. I'd love to explore a paid collaboration. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Sweet ZZZ — surena@ljv-media.com | Paid
-
-**Subject:** Paid UGC Inquiry — Sweet ZZZ x @vidadelosvalentines
-
-Hi Surena,
-
-I'm Bella Valentine, a family and wellness creator on Instagram and TikTok (@vidadelosvalentines). Sleep is a huge topic in my community — whether it's baby sleep or exhausted mama sleep! Sweet ZZZ's natural sleep solutions are a perfect fit. I'd love to explore a paid UGC collaboration. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Maple Holistics — lauren@mapleholistics.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x Maple Holistics
-
-Hi Lauren,
-
-I'm Bella Valentine, a beauty and wellness creator on Instagram and TikTok (@vidadelosvalentines). Natural, holistic hair and body care is something I'm passionate about, and Maple Holistics' clean ingredient formulas are exactly what my audience loves. I'd love to explore a gifted collaboration and create authentic content around your products!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Olaplex — emily.torres@olaplex.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x Olaplex
-
-Hi Emily,
-
-I'm Bella Valentine, a beauty and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Olaplex is truly the gold standard in bond-building hair care, and it's a brand my audience trusts deeply. I'd love to explore a gifted collaboration and create stunning hair transformation content around your products. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
-
----
-
-### Nutpods — miya.mukai@nutpods.com | Paid
-
-**Subject:** Paid UGC Inquiry — Nutpods x @vidadelosvalentines
+**Subject:** UGC Creator Inquiry — Nutpods
 
 Hi Miya,
 
-I'm Bella Valentine, a wellness and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Dairy-free creamer content is huge in my community of health-conscious moms, and Nutpods is one of the most beloved brands in that space. I'd love to explore a paid UGC collaboration — creating cozy, morning routine content featuring Nutpods. Happy to share my rates!
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — my daily content follows life as a mom of four, and my morning coffee routine with Nutpods would make for such natural, authentic content.
 
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
+I'd love to create a paid UGC video for you — a real morning moment you can use in ads or on social.
 
----
+Would you be open to chatting about rates?
 
-### Calm App — jacky.huang@calm.com | Paid
-
-**Subject:** Paid UGC Inquiry — Calm x @vidadelosvalentines
-
-Hi Jacky,
-
-I'm Bella Valentine, a wellness and family creator on Instagram and TikTok (@vidadelosvalentines). Mental wellness and mindfulness are topics that resonate so deeply with my audience of busy moms, and Calm is the most trusted app in that space. I'd love to explore a paid UGC collaboration — creating authentic, story-driven content around Calm. Happy to share my rates!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
+Bella
+@vidadelosvalentines
 
 ---
 
-### Grubhub — BTiesi@golin.com | Paid
+### Ryl Tea — ambassadors@Drinkryl.com | PAID
 
-**Subject:** Paid UGC Inquiry — Grubhub x @vidadelosvalentines
+**Subject:** UGC Creator Inquiry — Ryl Tea
+
+Hi Ryl team,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I make "day in the life of a mom of four" content, and evening wind-down and wellness routines are a big part of what I film.
+
+I'd love to create a paid UGC video for Ryl — cozy, lifestyle-driven content you can use in ads or on your channels.
+
+Open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+---
+
+# 🥣 FAMILY SNACKS & BREAKFAST
+
+---
+
+### Three Wishes Cereal — tracy@threewishescereal.com | PAID
+
+**Subject:** UGC Creator Inquiry — Three Wishes Cereal
+
+Hi Tracy,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and breakfast chaos is very real in our house.
+
+I'd love to create a paid UGC video for Three Wishes — a real family breakfast moment you can run in ads or on social.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Magic Spoon Cereal — agcreators@magicspoon.com | GIFTED
+
+**Subject:** Quick collab idea — Magic Spoon
+
+Hi Magic Spoon team,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I create "day in the life of a mom of four" content and family breakfast is a staple in what I film.
+
+I'd love to create a fun breakfast video featuring Magic Spoon — you'd get the raw files to use in ads or on your channels, and I'd love product in exchange.
+
+Open to connecting?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Partake — grace@candidnetwork.co | PAID
+
+**Subject:** UGC Creator Inquiry — Partake
+
+Hi Grace,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" content and snack time and allergy-safe food are constant topics in my community.
+
+I'd love to create a paid UGC snack video for Partake — relatable mom + kids content you can run in ads.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Amara Toddler Snacks — creators@amaraorganicfoods.com | PAID
+
+**Subject:** UGC Creator Inquiry — Amara
+
+Hi Amara team,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I create "day in the life of a mom of four" content and toddler snack time is one of my most-watched moments.
+
+I'd love to create a paid UGC video for Amara — real toddler snack content you can use in ads or on social.
+
+Open to chatting about rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Puff Cookies — alexis.grabel@puffcookies.com | PAID
+
+**Subject:** UGC Creator Inquiry — Puff Cookies
+
+Hi Alexis,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and snack content is always a hit with my audience.
+
+I'd love to create a paid UGC video for Puff Cookies — a fun family snack moment you can use in ads or on your channels.
+
+Open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### LesserEvil Snacks — diana@htcollective.com | PAID
+
+**Subject:** UGC Creator Inquiry — LesserEvil
+
+Hi Diana,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I create "day in the life of a mom of four" content, and better-for-you snacks are one of my highest-performing topics.
+
+I'd love to create a paid UGC video for LesserEvil — authentic mom and kids snack content for your ads or social channels.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### RIND Snacks — aelfanbaum@kirfoods.com | PAID
+
+**Subject:** UGC Creator Inquiry — RIND Snacks
 
 Hi there,
 
-I'm Bella Valentine, a lifestyle and family creator on Instagram and TikTok (@vidadelosvalentines). Food delivery content is relatable, fun, and high-performing — and "busy mom dinner solutions" is exactly the kind of content my audience engages with. I'd love to explore a paid UGC collaboration with Grubhub. Happy to share my rates!
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and wholesome, grab-and-go snacks are always part of the chaos.
 
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
+I'd love to create a paid UGC video for RIND — a real, relatable snack moment you can use in ads.
 
----
+Open to connecting about rates?
 
-### Melinda Maria Jewelry — ambassadors@melindamaria.com | Gifted
-
-**Subject:** Gifted Collaboration — @vidadelosvalentines x Melinda Maria
-
-Hi Melinda Maria team,
-
-I'm Bella Valentine, a fashion and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Bold, statement jewelry is such a fun niche to create in, and Melinda Maria's colorful, playful designs are perfect for my audience. I'd love to explore a gifted collaboration and create vibrant jewelry styling content. Would love to connect!
-
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
+Bella
+@vidadelosvalentines
 
 ---
 
-### Select Blinds — partnerships@selectblinds.com | Gifted
+### Chocxo — alejandra@commercetheory.io | PAID
 
-**Subject:** Gifted Collaboration — @vidadelosvalentines x Select Blinds
+**Subject:** UGC Creator Inquiry — Chocxo
 
-Hi Select Blinds team,
+Hi Alejandra,
 
-I'm Bella Valentine, a home and lifestyle creator on Instagram and TikTok (@vidadelosvalentines). Home improvement and interior refresh content performs incredibly well with my audience, and window treatments are such a transformative element. I'd love to explore a gifted collaboration and create a beautiful home reveal around your blinds. Would love to connect!
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and the after-kids-are-in-bed chocolate treat is very relatable content.
 
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
+I'd love to create a paid UGC video for Chocxo — a real lifestyle moment you can use in ads or on your channels.
+
+Open to discussing rates?
+
+Bella
+@vidadelosvalentines
 
 ---
 
-### HeyDude — influencers@partnerships.heydude.com | Gifted
+### Just Ingredients — ugccreators@justingredients.com | PAID
 
-**Subject:** Gifted Collaboration — @vidadelosvalentines x HeyDude
+**Subject:** UGC Creator Inquiry — Just Ingredients
+
+Hi Just Ingredients team,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I make "day in the life of a mom of four" content and clean nutrition is something I talk about constantly.
+
+I'd love to create a paid UGC video for Just Ingredients — an authentic wellness moment you can use in ads or organic social.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+---
+
+# 🎨 ARTS, CRAFTS & KIDS ACTIVITIES
+
+---
+
+### Little Adventures — contact@littleadventures.com | GIFTED
+
+**Subject:** Quick collab idea — Little Adventures
+
+Hi Little Adventures team,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" content and dress-up and imaginative play are some of my most joyful videos to make.
+
+I'd love to feature your costumes in a play day video — you'd get the raw files for your own use and I'd love product in exchange.
+
+Open to connecting?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Wonderbly Books — nic@wonderbly.com | PAID
+
+**Subject:** UGC Creator Inquiry — Wonderbly
+
+Hi Nic,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and reading time and personalized gifts are content my audience goes crazy for.
+
+I'd love to create a paid UGC video for Wonderbly — a real kids' reaction moment you can use in ads.
+
+Open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Little Bible Stories — contact@littlebiblestories.com | PAID
+
+**Subject:** UGC Creator Inquiry — Little Bible Stories
+
+Hi there,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and faith-based kids content is something my community genuinely values.
+
+I'd love to create a paid UGC video for Little Bible Stories — a real family reading moment you can use in ads or on your channels.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### ABC Mouse — grace@candidnetwork.co | PAID
+
+**Subject:** UGC Creator Inquiry — ABC Mouse
+
+Hi Grace,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and kids' screen time that's actually educational is something my parent audience loves.
+
+I'd love to create a paid UGC video for ABC Mouse — a real toddler learning moment you can use in ads.
+
+Open to connecting about rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Crafty by Numbers — ugc@brandluxmedia.com | PAID
+
+**Subject:** UGC Creator Inquiry — Crafty by Numbers
+
+Hi there,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and arts and crafts projects are one of my most-watched content formats.
+
+I'd love to create a paid UGC video for Crafty by Numbers — a real family activity moment you can use in ads or on your channels.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+---
+
+# 👶 BABY & TODDLER ESSENTIALS
+
+---
+
+### Jool Baby — IG DM to @joolbaby | GIFTED
+
+> Hi Jool Baby! I'm Bella Valentine (@vidadelosvalentines) — I make "day in the life of a mom of four" content on Instagram and TikTok. I'd love to feature your products in an authentic daily routine video — you'd get the raw files to use however you'd like, and I'd love product in exchange. Open to connecting? 😊
+
+---
+
+### Conkka — IG DM to @conkkababies | GIFTED
+
+> Hi Conkka! I'm Bella Valentine (@vidadelosvalentines) — I create "day in the life of a mom of four" content on Instagram and TikTok. I'd love to feature your baby products in a real daily routine moment — you'd get the raw files to use in ads or on social, and I'd love product in exchange. Interested in connecting?
+
+---
+
+### Toki Mats — partnerships@tokimats.com | GIFTED
+
+**Subject:** Quick collab idea — Toki Mats
+
+Hi Toki Mats team,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and baby floor time and play mats are a daily staple in our home.
+
+I'd love to feature a Toki Mat in a real baby play video — you'd get the raw files for your own use and I'd love a mat in exchange.
+
+Open to connecting?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Lullaby Earth — lullabyearth@brands.aspireiq.com | PAID
+
+**Subject:** UGC Creator Inquiry — Lullaby Earth
+
+Hi Lullaby Earth team,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and safe sleep products for babies are one of the most trusted topics in my content.
+
+I'd love to create a paid UGC video for Lullaby Earth — an authentic nursery and bedtime moment you can use in ads.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Tasty Tie Teether — dan@tastytie.com | PAID
+
+**Subject:** UGC Creator Inquiry — Tasty Tie
+
+Hi Dan,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and baby feeding and teething content gets huge engagement in my community.
+
+I'd love to create a paid UGC video for Tasty Tie — a real baby mealtime moment you can run in ads.
+
+Open to chatting about rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Maneji Diapers — sg@manekijapan.com | PAID
+
+**Subject:** UGC Creator Inquiry — Maneji Diapers
+
+Hi there,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and diaper content is as real and daily as it gets.
+
+I'd love to create a paid UGC video for Maneji — an authentic baby care moment you can use in ads or on your channels.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Kendamil Formula — sasha.bonar@kendamil.uk | PAID
+
+**Subject:** UGC Creator Inquiry — Kendamil
+
+Hi Sasha,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and feeding decisions are one of the most trusted and searched topics in my community.
+
+I'd love to create a paid UGC video for Kendamil — an honest, warm feeding moment you can use in ads.
+
+Open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Formuland — hailey@theupprhand.com | PAID
+
+**Subject:** UGC Creator Inquiry — Formuland
+
+Hi Hailey,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I create "day in the life of a mom of four" content and formula education and real feeding moments are high-trust content in my community.
+
+I'd love to create a paid UGC video for Formuland — authentic baby feeding content you can use in ads.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### SubLuna Kids Protein — collabs@shopsubluna.com | PAID
+
+**Subject:** UGC Creator Inquiry — SubLuna
+
+Hi SubLuna team,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and getting protein into picky toddlers is a real and relatable struggle I talk about all the time.
+
+I'd love to create a paid UGC video for SubLuna — a genuine mom + toddler snack moment you can use in ads.
+
+Open to chatting about rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Childlife Vitamins — quinci@godfreysocialpr.com | PAID
+
+**Subject:** UGC Creator Inquiry — Childlife Vitamins
+
+Hi Quinci,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and kids' health and supplements are something my audience asks about constantly.
+
+I'd love to create a paid UGC video for Childlife Vitamins — an authentic morning routine moment you can use in ads.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Our Little Treasures — meng@ourlittletreasures.com | PAID
+
+**Subject:** UGC Creator Inquiry — Our Little Treasures
+
+Hi Meng,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and baby keepsakes and milestone moments are some of my most emotional, high-engagement content.
+
+I'd love to create a paid UGC video for Our Little Treasures — a heartfelt family moment you can use in ads or on your channels.
+
+Open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Renzo Baby Gear — roger@renzobaby.com | PAID
+
+**Subject:** UGC Creator Inquiry — Renzo Baby
+
+Hi Roger,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and baby gear is one of the most clicked and trusted content categories I create.
+
+I'd love to create a paid UGC video for Renzo — a real on-the-go family moment you can run in ads.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Guava Family — eden@pilothouse.co | PAID
+
+**Subject:** UGC Creator Inquiry — Guava Family
+
+Hi Eden,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and running errands or traveling with little ones is very real content in my world.
+
+I'd love to create a paid UGC video for Guava Family — an authentic on-the-go family moment you can use in ads.
+
+Open to chatting about rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+---
+
+# 👗 RUNNING ERRANDS / MOM FASHION
+
+---
+
+### Halara — marketing.tiana@halara.com | GIFTED
+
+**Subject:** Quick collab idea — Halara
+
+Hi Tiana,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and what I wear while running errands and wrangling kids is content my audience genuinely asks about.
+
+I'd love to create a try-on video featuring Halara — you'd get the raw files for ads or social and I'd love a set in exchange.
+
+Open to connecting?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Fabletics — KyLau@fabletics.com | GIFTED
+
+**Subject:** Quick collab idea — Fabletics
+
+Hi Ky,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and activewear that keeps up with the chaos is always part of my content.
+
+I'd love to create an authentic try-on video for Fabletics — you'd get the raw files for your own use and I'd love product in exchange.
+
+Interested in connecting?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Baltic Born — jessica@balticborn.com | PAID
+
+**Subject:** UGC Creator Inquiry — Baltic Born
+
+Hi Jessica,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and family coordinating outfits are some of my most-saved and shared posts.
+
+I'd love to create a paid UGC video for Baltic Born — a real family lifestyle moment you can use in ads.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### PatPat — olivia@influencer.patpatmail.com | PAID
+
+**Subject:** UGC Creator Inquiry — PatPat
+
+Hi Olivia,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and kids' clothing hauls and everyday dressing videos do really well in my community.
+
+I'd love to create a paid UGC haul video for PatPat — fun, real mom content you can use in ads or on your channels.
+
+Open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### HeyDude — influencers@partnerships.heydude.com | GIFTED
+
+**Subject:** Quick collab idea — HeyDude
 
 Hi HeyDude team,
 
-I'm Bella Valentine, a lifestyle and fashion creator on Instagram and TikTok (@vidadelosvalentines). Comfortable, casual footwear is something my entire family wears and my audience loves "the whole family in HeyDudes" content. I'd love to explore a gifted collaboration and create fun, relatable family lifestyle content around your shoes. Would love to connect!
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and casual everyday footwear for the whole family is very natural content for me.
 
-Warm regards,
-Bella Valentine
-@vidadelosvalentines (Instagram & TikTok)
+I'd love to create a real family lifestyle video featuring HeyDude — you'd get the raw files to use however you'd like, and I'd love shoes in exchange.
+
+Open to connecting?
+
+Bella
+@vidadelosvalentines
 
 ---
 
-*End of outreach drafts — 90+ brands covered.*
-*Handle: @vidadelosvalentines | Creator: Bella Valentine*
+### Kindred Bravely — hello@kindredbravely.com | (open)
+
+**Subject:** UGC Creator Inquiry — Kindred Bravely
+
+Hi Kindred Bravely team,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and comfort, nursing, and postpartum content are genuine, high-trust topics in my community.
+
+I'd love to create a UGC video for Kindred Bravely — an authentic everyday mom moment you can use in ads or on social.
+
+Open to discussing rates or gifting?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Pink Blush — alisha@shoppinkblush.com | GIFTED
+
+**Subject:** Quick collab idea — Pink Blush
+
+Hi Alisha,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and maternity and postpartum fashion content resonates deeply with my audience.
+
+I'd love to create an authentic try-on video for Pink Blush — you'd get the raw files to use in ads or on social, and I'd love product in exchange.
+
+Open to connecting?
+
+Bella
+@vidadelosvalentines
+
+---
+
+---
+
+# 🏠 HOME & COZY EVENINGS
+
+---
+
+### River Ridge Home — IG DM to @riverridgehome | GIFTED
+
+> Hi River Ridge Home! I'm Bella Valentine (@vidadelosvalentines) — I create "day in the life of a mom of four" content on Instagram and TikTok. Home and cozy family space content is a big part of what I film, and your pieces are beautiful. I'd love to feature your products in a home lifestyle video — you'd get the raw files to use however you'd like, and I'd love product in exchange. Open to connecting?
+
+---
+
+### Arbor Made Candles — nate@arbormade.co | PAID
+
+**Subject:** UGC Creator Inquiry — Arbor Made
+
+Hi Nate,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and the evening wind-down after the kids are in bed is a recurring and beloved part of my content.
+
+I'd love to create a paid UGC video for Arbor Made — a cozy, atmospheric home moment you can use in ads.
+
+Open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Zonli — Zonliroland@creator.noxinfluencer.com | GIFTED
+
+**Subject:** Quick collab idea — Zonli
+
+Hi Zonli team,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and cozy home moments — movie nights, rest time, lazy Sundays — are a huge part of my content.
+
+I'd love to create a cozy lifestyle video featuring Zonli — you'd get the raw files for your own use and I'd love product in exchange.
+
+Open to connecting?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Nixplay — sherazade.karim@nix-digital.com | GIFTED
+
+**Subject:** Quick collab idea — Nixplay
+
+Hi Sherazade,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and family memory content is something my audience connects deeply with.
+
+I'd love to create a heartfelt home lifestyle video featuring Nixplay — you'd get the raw files to use however you'd like and I'd love a frame in exchange.
+
+Open to connecting?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### 1-800-GOT-JUNK — megan.connery@1800gotjunk.com | PAID
+
+**Subject:** UGC Creator Inquiry — 1-800-GOT-JUNK
+
+Hi Megan,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and home organization and decluttering content is extremely popular with my audience.
+
+I'd love to create a paid UGC before/after video for 1-800-GOT-JUNK — a real, satisfying home transformation you can use in ads.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+---
+
+# 🧘 MOM SELF-CARE
+
+---
+
+### Calm App — jacky.huang@calm.com | PAID
+
+**Subject:** UGC Creator Inquiry — Calm App
+
+Hi Jacky,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and mental wellness and finding quiet in the chaos is something my audience relates to deeply.
+
+I'd love to create a paid UGC video for Calm — an authentic mom self-care moment you can run in ads.
+
+Open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Paired App — eira.engedal@paired.com | PAID
+
+**Subject:** UGC Creator Inquiry — Paired App
+
+Hi Eira,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and keeping my relationship strong while raising little ones is a topic my audience loves.
+
+I'd love to create a paid UGC video for Paired — a real couple moment you can use in ads or on your channels.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Cowboy Colostrum — carly@cowboycolostrom.com | GIFTED
+
+**Subject:** Quick collab idea — Cowboy Colostrum
+
+Hi Carly,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and my wellness routine and what I take to keep up with four kids is genuine, trusted content.
+
+I'd love to create a wellness routine video featuring Cowboy Colostrum — you'd get the raw files to use however you'd like, and I'd love product in exchange.
+
+Open to connecting?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Biom — savannah@getbiom.co | PAID
+
+**Subject:** UGC Creator Inquiry — Biom
+
+Hi Savannah,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and gut health and how I take care of myself as a busy mom is a trusted topic in my community.
+
+I'd love to create a paid UGC video for Biom — an authentic daily wellness moment you can use in ads.
+
+Open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Maelys Skincare — ugc@maelyscosmetics.com | PAID
+
+**Subject:** UGC Creator Inquiry — Maelys
+
+Hi Maelys team,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and postpartum body confidence and self-care are topics my audience trusts me on deeply.
+
+I'd love to create a paid UGC video for Maelys — a real, honest body care routine you can use in ads.
+
+Would you be open to discussing rates?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Native Deodorant — katie@nativeco.com | (open)
+
+**Subject:** UGC Creator Inquiry — Native
+
+Hi Katie,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film daily life as a mom of four and clean personal care is something I genuinely prioritize and talk about on my channels.
+
+I'd love to create a UGC video for Native — an authentic morning routine moment you can use in ads or on social.
+
+Open to discussing rates or gifting?
+
+Bella
+@vidadelosvalentines
+
+---
+
+### Saltair — lourdes@saltair.com | GIFTED
+
+**Subject:** Quick collab idea — Saltair
+
+Hi Lourdes,
+
+I'm Bella Valentine, a UGC creator on Instagram and TikTok (@vidadelosvalentines) — I film "day in the life of a mom of four" and mom self-care moments — getting a real shower in — are some of my most relatable content.
+
+I'd love to create an authentic body care video featuring Saltair — you'd get the raw files to use in ads or on social, and I'd love product in exchange.
+
+Open to connecting?
+
+Bella
+@vidadelosvalentines
+
+---
+
+*50 brands | All drafts by Bella Valentine (@vidadelosvalentines)*
