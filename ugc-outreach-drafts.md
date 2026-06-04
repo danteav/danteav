@@ -26,7 +26,7 @@ Hi Savannah,
 
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I make "day in the life of a mom of four" content and cooking dinner is one of my most-watched segments.
 
-I'd love to feature Caraway cookware in an authentic dinner prep video, you'd get the raw files to use in ads or on social, and I'd love a set in exchange.
+I'd love to feature Caraway cookware in an authentic dinner prep video, and I'd love a set in exchange.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -206,7 +206,7 @@ Hi Magic Spoon team,
 
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I create "day in the life of a mom of four" content and family breakfast is a staple in what I film.
 
-I'd love to create a fun breakfast video featuring Magic Spoon, you'd get the raw files to use in ads or on your channels, and I'd love product in exchange.
+I'd love to create a fun breakfast video featuring Magic Spoon, and I'd love product in exchange.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -380,7 +380,7 @@ Hi Little Adventures team,
 
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the life of a mom of four" content and dress-up and imaginative play are some of my most joyful videos to make.
 
-I'd love to feature your costumes in a play day video, you'd get the raw files for your own use and I'd love product in exchange.
+I'd love to feature your costumes in a play day video and I'd love product in exchange.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -485,7 +485,7 @@ Bella Valentine
 
 ### Jool Baby, IG DM to @joolbaby | GIFTED
 
-> Hi Jool Baby! I'm Bella Valentine, a UGC creator making "day in the life of a mom of four" content on Instagram and TikTok. I'd love to feature your products in an authentic daily routine video, you'd get the raw files to use however you'd like, and I'd love product in exchange. Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
+> Hi Jool Baby! I'm Bella Valentine, a UGC creator making "day in the life of a mom of four" content on Instagram and TikTok. I'd love to feature your products in an authentic daily routine video, and I'd love product in exchange. Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
 Open to connecting? 😊
 
@@ -493,7 +493,7 @@ Open to connecting? 😊
 
 ### Conkka, IG DM to @conkkababies | GIFTED
 
-> Hi Conkka! I'm Bella Valentine, a UGC creator making "day in the life of a mom of four" content on Instagram and TikTok. I'd love to feature your baby products in a real daily routine moment, you'd get the raw files to use in ads or on social, and I'd love product in exchange. Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
+> Hi Conkka! I'm Bella Valentine, a UGC creator making "day in the life of a mom of four" content on Instagram and TikTok. I'd love to feature your baby products in a real daily routine moment, and I'd love product in exchange. Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
 Interested in connecting?
 
@@ -507,7 +507,7 @@ Hi Toki Mats team,
 
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the life of a mom of four" and baby floor time and play mats are a daily staple in our home.
 
-I'd love to feature a Toki Mat in a real baby play video, you'd get the raw files for your own use and I'd love a mat in exchange.
+I'd love to feature a Toki Mat in a real baby play video and I'd love a mat in exchange.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -744,7 +744,7 @@ Hi Tiana,
 
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the life of a mom of four" and what I wear while running errands and wrangling kids is content my audience genuinely asks about.
 
-I'd love to create a try-on video featuring Halara, you'd get the raw files for ads or social and I'd love a set in exchange.
+I'd love to create a try-on video featuring Halara and I'd love a set in exchange.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -765,7 +765,7 @@ Hi Ky,
 
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as a mom of four and activewear that keeps up with the chaos is always part of my content.
 
-I'd love to create an authentic try-on video for Fabletics, you'd get the raw files for your own use and I'd love product in exchange.
+I'd love to create an authentic try-on video for Fabletics and I'd love product in exchange.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -828,7 +828,7 @@ Hi HeyDude team,
 
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the life of a mom of four" and casual everyday footwear for the whole family is very natural content for me.
 
-I'd love to create a real family lifestyle video featuring HeyDude, you'd get the raw files to use however you'd like, and I'd love shoes in exchange.
+I'd love to create a real family lifestyle video featuring HeyDude, and I'd love shoes in exchange.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -870,7 +870,7 @@ Hi Alisha,
 
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as a mom of four and maternity and postpartum fashion content resonates deeply with my audience.
 
-I'd love to create an authentic try-on video for Pink Blush, you'd get the raw files to use in ads or on social, and I'd love product in exchange.
+I'd love to create an authentic try-on video for Pink Blush, and I'd love product in exchange.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -891,7 +891,7 @@ Bella Valentine
 
 ### River Ridge Home, IG DM to @riverridgehome | GIFTED
 
-> Hi River Ridge Home! I'm Bella Valentine, a UGC creator making "day in the life of a mom of four" content on Instagram and TikTok. Home and cozy family space content is a big part of what I film, and your pieces are beautiful. I'd love to feature your products in a home lifestyle video, you'd get the raw files to use however you'd like, and I'd love product in exchange. Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
+> Hi River Ridge Home! I'm Bella Valentine, a UGC creator making "day in the life of a mom of four" content on Instagram and TikTok. Home and cozy family space content is a big part of what I film, and your pieces are beautiful. I'd love to feature your products in a home lifestyle video, and I'd love product in exchange. Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
 Open to connecting?
 
@@ -926,7 +926,7 @@ Hi Zonli team,
 
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as a mom of four and cozy home moments, movie nights, rest time, lazy Sundays, are a huge part of my content.
 
-I'd love to create a cozy lifestyle video featuring Zonli, you'd get the raw files for your own use and I'd love product in exchange.
+I'd love to create a cozy lifestyle video featuring Zonli and I'd love product in exchange.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -947,7 +947,7 @@ Hi Sherazade,
 
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the life of a mom of four" and family memory content is something my audience connects deeply with.
 
-I'd love to create a heartfelt home lifestyle video featuring Nixplay, you'd get the raw files to use however you'd like and I'd love a frame in exchange.
+I'd love to create a heartfelt home lifestyle video featuring Nixplay and I'd love a frame in exchange.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -1037,7 +1037,7 @@ Hi Carly,
 
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the life of a mom of four" and my wellness routine and what I take to keep up with four kids is genuine, trusted content.
 
-I'd love to create a wellness routine video featuring Cowboy Colostrum, you'd get the raw files to use however you'd like, and I'd love product in exchange.
+I'd love to create a wellness routine video featuring Cowboy Colostrum, and I'd love product in exchange.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -1121,7 +1121,7 @@ Hi Lourdes,
 
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the life of a mom of four" and mom self-care moments, getting a real shower in, are some of my most relatable content.
 
-I'd love to create an authentic body care video featuring Saltair, you'd get the raw files to use in ads or on social, and I'd love product in exchange.
+I'd love to create an authentic body care video featuring Saltair, and I'd love product in exchange.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
