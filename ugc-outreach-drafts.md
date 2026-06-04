@@ -28,6 +28,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I make "day in the l
 
 I'd love to feature Caraway cookware in an authentic dinner prep video, you'd get the raw files to use in ads or on social, and I'd love a set in exchange.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Open to connecting?
 
 Bella Valentine
@@ -47,6 +49,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, my content is "day i
 
 I'd love to create a paid UGC video for True Nature Meats, a real family dinner prep moment you can use in ads or on your channels.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Would you be open to discussing rates?
 
 Bella Valentine
@@ -65,6 +69,8 @@ Hi there,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as a mom of four, and "those nights when mom doesn't cook" are some of my most relatable content.
 
 I'd love to create a paid UGC video for Grubhub, an honest, funny, real-mom moment you can use in ads.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to chatting about rates?
 
@@ -91,6 +97,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, my content is "day i
 
 I'd love to create a paid UGC video for Fabula, a real morning routine clip you can use in ads or on your channels.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Would you be open to discussing rates?
 
 Bella Valentine
@@ -109,6 +117,8 @@ Hi Noah,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I create "day in the life of a mom of four" content, and coffee is the first thing I film every morning.
 
 I'd love to create a paid UGC video for Javvy, an authentic morning moment you can run in ads or organic social.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to connecting about rates?
 
@@ -129,6 +139,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, my daily content fol
 
 I'd love to create a paid UGC video for you, a real morning moment you can use in ads or on social.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Would you be open to chatting about rates?
 
 Bella Valentine
@@ -147,6 +159,8 @@ Hi Ryl team,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I make "day in the life of a mom of four" content, and evening wind-down and wellness routines are a big part of what I film.
 
 I'd love to create a paid UGC video for Ryl, cozy, lifestyle-driven content you can use in ads or on your channels.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to discussing rates?
 
@@ -173,6 +187,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as
 
 I'd love to create a paid UGC video for Three Wishes, a real family breakfast moment you can run in ads or on social.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Would you be open to discussing rates?
 
 Bella Valentine
@@ -191,6 +207,8 @@ Hi Magic Spoon team,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I create "day in the life of a mom of four" content and family breakfast is a staple in what I film.
 
 I'd love to create a fun breakfast video featuring Magic Spoon, you'd get the raw files to use in ads or on your channels, and I'd love product in exchange.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to connecting?
 
@@ -211,6 +229,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the l
 
 I'd love to create a paid UGC snack video for Partake, relatable mom + kids content you can run in ads.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Would you be open to discussing rates?
 
 Bella Valentine
@@ -229,6 +249,8 @@ Hi Amara team,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I create "day in the life of a mom of four" content and toddler snack time is one of my most-watched moments.
 
 I'd love to create a paid UGC video for Amara, real toddler snack content you can use in ads or on social.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to chatting about rates?
 
@@ -249,6 +271,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as
 
 I'd love to create a paid UGC video for Puff Cookies, a fun family snack moment you can use in ads or on your channels.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Open to discussing rates?
 
 Bella Valentine
@@ -267,6 +291,8 @@ Hi Diana,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I create "day in the life of a mom of four" content, and better-for-you snacks are one of my highest-performing topics.
 
 I'd love to create a paid UGC video for LesserEvil, authentic mom and kids snack content for your ads or social channels.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Would you be open to discussing rates?
 
@@ -287,6 +313,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as
 
 I'd love to create a paid UGC video for RIND, a real, relatable snack moment you can use in ads.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Open to connecting about rates?
 
 Bella Valentine
@@ -306,6 +334,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the l
 
 I'd love to create a paid UGC video for Chocxo, a real lifestyle moment you can use in ads or on your channels.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Open to discussing rates?
 
 Bella Valentine
@@ -324,6 +354,8 @@ Hi Just Ingredients team,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I make "day in the life of a mom of four" content and clean nutrition is something I talk about constantly.
 
 I'd love to create a paid UGC video for Just Ingredients, an authentic wellness moment you can use in ads or organic social.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Would you be open to discussing rates?
 
@@ -350,6 +382,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the l
 
 I'd love to feature your costumes in a play day video, you'd get the raw files for your own use and I'd love product in exchange.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Open to connecting?
 
 Bella Valentine
@@ -368,6 +402,8 @@ Hi Nic,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as a mom of four and reading time and personalized gifts are content my audience goes crazy for.
 
 I'd love to create a paid UGC video for Wonderbly, a real kids' reaction moment you can use in ads.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to discussing rates?
 
@@ -388,6 +424,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the l
 
 I'd love to create a paid UGC video for Little Bible Stories, a real family reading moment you can use in ads or on your channels.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Would you be open to discussing rates?
 
 Bella Valentine
@@ -406,6 +444,8 @@ Hi Grace,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as a mom of four and kids' screen time that's actually educational is something my parent audience loves.
 
 I'd love to create a paid UGC video for ABC Mouse, a real toddler learning moment you can use in ads.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to connecting about rates?
 
@@ -426,6 +466,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the l
 
 I'd love to create a paid UGC video for Crafty by Numbers, a real family activity moment you can use in ads or on your channels.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Would you be open to discussing rates?
 
 Bella Valentine
@@ -443,13 +485,17 @@ Bella Valentine
 
 ### Jool Baby, IG DM to @joolbaby | GIFTED
 
-> Hi Jool Baby! I'm Bella Valentine, a UGC creator making "day in the life of a mom of four" content on Instagram and TikTok. I'd love to feature your products in an authentic daily routine video, you'd get the raw files to use however you'd like, and I'd love product in exchange. Open to connecting? 😊
+> Hi Jool Baby! I'm Bella Valentine, a UGC creator making "day in the life of a mom of four" content on Instagram and TikTok. I'd love to feature your products in an authentic daily routine video, you'd get the raw files to use however you'd like, and I'd love product in exchange. Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
+Open to connecting? 😊
 
 ---
 
 ### Conkka, IG DM to @conkkababies | GIFTED
 
-> Hi Conkka! I'm Bella Valentine, a UGC creator making "day in the life of a mom of four" content on Instagram and TikTok. I'd love to feature your baby products in a real daily routine moment, you'd get the raw files to use in ads or on social, and I'd love product in exchange. Interested in connecting?
+> Hi Conkka! I'm Bella Valentine, a UGC creator making "day in the life of a mom of four" content on Instagram and TikTok. I'd love to feature your baby products in a real daily routine moment, you'd get the raw files to use in ads or on social, and I'd love product in exchange. Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
+Interested in connecting?
 
 ---
 
@@ -462,6 +508,8 @@ Hi Toki Mats team,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the life of a mom of four" and baby floor time and play mats are a daily staple in our home.
 
 I'd love to feature a Toki Mat in a real baby play video, you'd get the raw files for your own use and I'd love a mat in exchange.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to connecting?
 
@@ -482,6 +530,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as
 
 I'd love to create a paid UGC video for Lullaby Earth, an authentic nursery and bedtime moment you can use in ads.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Would you be open to discussing rates?
 
 Bella Valentine
@@ -500,6 +550,8 @@ Hi Dan,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the life of a mom of four" and baby feeding and teething content gets huge engagement in my community.
 
 I'd love to create a paid UGC video for Tasty Tie, a real baby mealtime moment you can run in ads.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to chatting about rates?
 
@@ -520,6 +572,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as
 
 I'd love to create a paid UGC video for Maneji, an authentic baby care moment you can use in ads or on your channels.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Would you be open to discussing rates?
 
 Bella Valentine
@@ -538,6 +592,8 @@ Hi Sasha,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the life of a mom of four" and feeding decisions are one of the most trusted and searched topics in my community.
 
 I'd love to create a paid UGC video for Kendamil, an honest, warm feeding moment you can use in ads.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to discussing rates?
 
@@ -558,6 +614,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I create "day in the
 
 I'd love to create a paid UGC video for Formuland, authentic baby feeding content you can use in ads.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Would you be open to discussing rates?
 
 Bella Valentine
@@ -576,6 +634,8 @@ Hi SubLuna team,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as a mom of four and getting protein into picky toddlers is a real and relatable struggle I talk about all the time.
 
 I'd love to create a paid UGC video for SubLuna, a genuine mom + toddler snack moment you can use in ads.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to chatting about rates?
 
@@ -596,6 +656,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the l
 
 I'd love to create a paid UGC video for Childlife Vitamins, an authentic morning routine moment you can use in ads.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Would you be open to discussing rates?
 
 Bella Valentine
@@ -614,6 +676,8 @@ Hi Meng,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as a mom of four and baby keepsakes and milestone moments are some of my most emotional, high-engagement content.
 
 I'd love to create a paid UGC video for Our Little Treasures, a heartfelt family moment you can use in ads or on your channels.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to discussing rates?
 
@@ -634,6 +698,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the l
 
 I'd love to create a paid UGC video for Renzo, a real on-the-go family moment you can run in ads.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Would you be open to discussing rates?
 
 Bella Valentine
@@ -652,6 +718,8 @@ Hi Eden,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as a mom of four and running errands or traveling with little ones is very real content in my world.
 
 I'd love to create a paid UGC video for Guava Family, an authentic on-the-go family moment you can use in ads.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to chatting about rates?
 
@@ -678,6 +746,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the l
 
 I'd love to create a try-on video featuring Halara, you'd get the raw files for ads or social and I'd love a set in exchange.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Open to connecting?
 
 Bella Valentine
@@ -696,6 +766,8 @@ Hi Ky,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as a mom of four and activewear that keeps up with the chaos is always part of my content.
 
 I'd love to create an authentic try-on video for Fabletics, you'd get the raw files for your own use and I'd love product in exchange.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Interested in connecting?
 
@@ -716,6 +788,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the l
 
 I'd love to create a paid UGC video for Baltic Born, a real family lifestyle moment you can use in ads.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Would you be open to discussing rates?
 
 Bella Valentine
@@ -734,6 +808,8 @@ Hi Olivia,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as a mom of four and kids' clothing hauls and everyday dressing videos do really well in my community.
 
 I'd love to create a paid UGC haul video for PatPat, fun, real mom content you can use in ads or on your channels.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to discussing rates?
 
@@ -754,6 +830,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the l
 
 I'd love to create a real family lifestyle video featuring HeyDude, you'd get the raw files to use however you'd like, and I'd love shoes in exchange.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Open to connecting?
 
 Bella Valentine
@@ -772,6 +850,8 @@ Hi Kindred Bravely team,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the life of a mom of four" and comfort, nursing, and postpartum content are genuine, high-trust topics in my community.
 
 I'd love to create a UGC video for Kindred Bravely, an authentic everyday mom moment you can use in ads or on social.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to discussing rates or gifting?
 
@@ -792,6 +872,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as
 
 I'd love to create an authentic try-on video for Pink Blush, you'd get the raw files to use in ads or on social, and I'd love product in exchange.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Open to connecting?
 
 Bella Valentine
@@ -809,7 +891,9 @@ Bella Valentine
 
 ### River Ridge Home, IG DM to @riverridgehome | GIFTED
 
-> Hi River Ridge Home! I'm Bella Valentine, a UGC creator making "day in the life of a mom of four" content on Instagram and TikTok. Home and cozy family space content is a big part of what I film, and your pieces are beautiful. I'd love to feature your products in a home lifestyle video, you'd get the raw files to use however you'd like, and I'd love product in exchange. Open to connecting?
+> Hi River Ridge Home! I'm Bella Valentine, a UGC creator making "day in the life of a mom of four" content on Instagram and TikTok. Home and cozy family space content is a big part of what I film, and your pieces are beautiful. I'd love to feature your products in a home lifestyle video, you'd get the raw files to use however you'd like, and I'd love product in exchange. Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
+Open to connecting?
 
 ---
 
@@ -822,6 +906,8 @@ Hi Nate,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the life of a mom of four" and the evening wind-down after the kids are in bed is a recurring and beloved part of my content.
 
 I'd love to create a paid UGC video for Arbor Made, a cozy, atmospheric home moment you can use in ads.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to discussing rates?
 
@@ -842,6 +928,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as
 
 I'd love to create a cozy lifestyle video featuring Zonli, you'd get the raw files for your own use and I'd love product in exchange.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Open to connecting?
 
 Bella Valentine
@@ -861,6 +949,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the l
 
 I'd love to create a heartfelt home lifestyle video featuring Nixplay, you'd get the raw files to use however you'd like and I'd love a frame in exchange.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Open to connecting?
 
 Bella Valentine
@@ -879,6 +969,8 @@ Hi Megan,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as a mom of four and home organization and decluttering content is extremely popular with my audience.
 
 I'd love to create a paid UGC before/after video for 1-800-GOT-JUNK, a real, satisfying home transformation you can use in ads.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Would you be open to discussing rates?
 
@@ -905,6 +997,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the l
 
 I'd love to create a paid UGC video for Calm, an authentic mom self-care moment you can run in ads.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Open to discussing rates?
 
 Bella Valentine
@@ -923,6 +1017,8 @@ Hi Eira,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as a mom of four and keeping my relationship strong while raising little ones is a topic my audience loves.
 
 I'd love to create a paid UGC video for Paired, a real couple moment you can use in ads or on your channels.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Would you be open to discussing rates?
 
@@ -943,6 +1039,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the l
 
 I'd love to create a wellness routine video featuring Cowboy Colostrum, you'd get the raw files to use however you'd like, and I'd love product in exchange.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Open to connecting?
 
 Bella Valentine
@@ -961,6 +1059,8 @@ Hi Savannah,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as a mom of four and gut health and how I take care of myself as a busy mom is a trusted topic in my community.
 
 I'd love to create a paid UGC video for Biom, an authentic daily wellness moment you can use in ads.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to discussing rates?
 
@@ -981,6 +1081,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the l
 
 I'd love to create a paid UGC video for Maelys, a real, honest body care routine you can use in ads.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Would you be open to discussing rates?
 
 Bella Valentine
@@ -1000,6 +1102,8 @@ I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film daily life as
 
 I'd love to create a UGC video for Native, an authentic morning routine moment you can use in ads or on social.
 
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
+
 Open to discussing rates or gifting?
 
 Bella Valentine
@@ -1018,6 +1122,8 @@ Hi Lourdes,
 I'm Bella Valentine, a UGC creator on Instagram and TikTok, I film "day in the life of a mom of four" and mom self-care moments, getting a real shower in, are some of my most relatable content.
 
 I'd love to create an authentic body care video featuring Saltair, you'd get the raw files to use in ads or on social, and I'd love product in exchange.
+
+Here is my [portfolio](https://vidadelosvalentines.my.canva.site/).
 
 Open to connecting?
 
