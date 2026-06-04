@@ -33,10 +33,7 @@ Open to connecting?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -55,10 +52,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -77,10 +71,7 @@ Open to chatting about rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -105,10 +96,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -127,10 +115,7 @@ Open to connecting about rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -149,10 +134,7 @@ Would you be open to chatting about rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -171,10 +153,7 @@ Open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -199,10 +178,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -221,10 +197,7 @@ Open to connecting?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -243,10 +216,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -265,10 +235,7 @@ Open to chatting about rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -287,10 +254,7 @@ Open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -309,10 +273,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -331,10 +292,7 @@ Open to connecting about rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -353,10 +311,7 @@ Open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -375,10 +330,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -403,10 +355,7 @@ Open to connecting?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -425,10 +374,7 @@ Open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -447,10 +393,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -469,10 +412,7 @@ Open to connecting about rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -491,10 +431,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -531,10 +468,7 @@ Open to connecting?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -553,10 +487,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -575,10 +506,7 @@ Open to chatting about rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -597,10 +525,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -619,10 +544,7 @@ Open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -641,10 +563,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -663,10 +582,7 @@ Open to chatting about rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -685,10 +601,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -707,10 +620,7 @@ Open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -729,10 +639,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -751,10 +658,7 @@ Open to chatting about rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -779,10 +683,7 @@ Open to connecting?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -801,10 +702,7 @@ Interested in connecting?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -823,10 +721,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -845,10 +740,7 @@ Open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -867,10 +759,7 @@ Open to connecting?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -889,10 +778,7 @@ Open to discussing rates or gifting?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -911,10 +797,7 @@ Open to connecting?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -945,10 +828,7 @@ Open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -967,10 +847,7 @@ Open to connecting?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -989,10 +866,7 @@ Open to connecting?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -1011,10 +885,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -1039,10 +910,7 @@ Open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -1061,10 +929,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -1083,10 +948,7 @@ Open to connecting?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -1105,10 +967,7 @@ Open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -1127,10 +986,7 @@ Would you be open to discussing rates?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -1149,10 +1005,7 @@ Open to discussing rates or gifting?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
@@ -1171,10 +1024,7 @@ Open to connecting?
 Bella Valentine
 @vidadelosvalentines
 
-Portfolio: [vidadelosvalentines.my.canva.site](https://vidadelosvalentines.my.canva.site/)
-Instagram: [instagram.com/vidadelosvalentines](https://www.instagram.com/vidadelosvalentines)
-TikTok: [tiktok.com/@vidadelosvalentines](https://www.tiktok.com/@vidadelosvalentines)
-Bio: [biosites.com/vidadelosvalentines](https://biosites.com/editor#/vidadelosvalentines/)
+[Portfolio](https://vidadelosvalentines.my.canva.site/) | [Instagram](https://www.instagram.com/vidadelosvalentines) | [TikTok](https://www.tiktok.com/@vidadelosvalentines) | [Bio](https://biosites.com/editor#/vidadelosvalentines/)
 
 ---
 
