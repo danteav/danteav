@@ -25,9 +25,9 @@
 
 Hi Huggies team,
 
-Diaper content from a mom of four who has genuinely used Huggies through every stage hits differently than a scripted ad — because it is not scripted at all.
+I've used Huggies with all four of my kids — it's genuinely never been a question in our house — and that kind of real, everyday loyalty is what I love to capture in content.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I already use Huggies every single day, and I'd love to create a paid authentic daily routine video for your channels and ads — the kind of real-mom content that builds trust with new parents.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I already use Huggies every single day, and I'd love to create an authentic daily routine video for your channels — real-mom content that new parents actually connect with.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -64,9 +64,9 @@ Bella Valentine
 
 Hi Mustela team,
 
-Baby bath and skincare content from a mom who genuinely reaches for the same brand every single night is the most authentic endorsement a product can get — and Mustela is that brand in our home.
+Mustela is genuinely what I reach for every single night at bathtime — it's been in our home since our first baby — and I'd love to bring that real daily ritual to content for you.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I use Mustela products on my children every day and I'd love to create paid or gifted UGC around our real bathtime routine — honest, warm content that reaches new parents right when they're making these decisions.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I use Mustela on my children every single day and I'd love to create content around our real bathtime routine — honest, warm content that new parents actually relate to.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -127,9 +127,9 @@ Bella Valentine
 
 Hi Blueland team,
 
-Clean home products that actually work are a non-negotiable in a house with four kids — and a mom showing her real laundry and dishes routine using sustainable tablets is the kind of content that converts with the eco-conscious mom demographic.
+With four kids, I'm always looking for cleaning products that are both effective and genuinely safe — Blueland fits naturally into the daily household content I already create, and I'd love to build something together around that.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create a paid or gifted everyday cleaning routine video for Blueland — authentic household content that reaches the exact audience already looking for what you offer.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create an everyday cleaning routine video for Blueland — authentic household content from a real family home.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -148,9 +148,9 @@ Bella Valentine
 
 Hi Dropps team,
 
-In a house with four kids, laundry is not a chore — it is a daily event. A plant-based, B Corp certified detergent that simplifies that event for moms is a product that tells itself.
+With four kids, laundry genuinely happens every single day in our house — and choosing a clean, plant-based detergent I can feel good about is something I think about. I'd love to bring that real daily moment to content for Dropps.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create a paid laundry routine video for Dropps that speaks honestly to moms who care about what goes on their kids' clothes and into the water supply.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create a laundry routine video for Dropps — honest, everyday content that speaks to moms who care about what goes on their kids' clothes.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -169,9 +169,9 @@ Bella Valentine
 
 Hi Molly's Suds team,
 
-Moms with young children are the most motivated buyers of clean, non-toxic laundry products — and a real household with four kids going through multiple loads a day is the most believable demonstration of a detergent that works.
+A real household with four kids going through multiple loads a day is a very honest demonstration of a laundry product — and I'd love to bring that authentic daily story to content for Molly's Suds.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create a paid or gifted laundry content video for Molly's Suds that reaches health-conscious moms through authentic, real-home storytelling.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create a laundry routine video for Molly's Suds — real-home storytelling that health-conscious moms genuinely relate to.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -244,9 +244,9 @@ Bella Valentine
 
 Hi Our Place team,
 
-A beautiful, non-toxic pan in a real family kitchen being used to cook actual dinner for four kids is more compelling than any styled shoot — because that is what moms actually want to see before they buy.
+I cook actual family dinners in a real kitchen every day, and a beautiful, non-toxic pan is something I genuinely look for — I'd love to bring that natural daily moment to content for Our Place.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create paid or gifted cooking content for Our Place showing your cookware in a real, lived-in family kitchen — the kind of authentic content that drives conversions with the mom demographic.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create cooking content for Our Place showing your cookware in a real, lived-in family kitchen — honest, everyday content that moms connect with.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -265,9 +265,9 @@ Bella Valentine
 
 Hi HexClad team,
 
-Family dinner content that shows a real mom cooking for four kids in a pan that genuinely holds up to daily use is the story that sells HexClad better than any ad campaign could.
+Cooking dinner for four kids every night is a big part of what I create, and a pan that genuinely holds up to that kind of daily use is a story I'd love to tell for HexClad.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. Cooking dinner is a core part of my content and I'd love to create a paid HexClad cooking video — real food, real kitchen, real family — for your ads and social channels.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. Cooking dinner is a core part of my content and I'd love to create a HexClad cooking video — real food, real kitchen, real family — for your ads and social channels.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -322,9 +322,9 @@ Bella Valentine
 
 Hi Avanchy team,
 
-Mealtime with four young kids means plates that can take a beating while still being safe and non-toxic — and that is a very specific, very real content story that health-conscious parents relate to immediately.
+Mealtime with four kids means we need tableware that is safe, durable, and genuinely kid-friendly — and Avanchy fits that naturally. I'd love to bring that real daily moment to content for you.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create paid or gifted mealtime content for Avanchy featuring your bamboo dinnerware in a real family kitchen setting — the authentic content that drives trust and purchases.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create mealtime content for Avanchy featuring your bamboo dinnerware in a real family kitchen — honest, everyday content that parents actually relate to.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -343,9 +343,9 @@ Bella Valentine
 
 Hi WeeSprout team,
 
-Non-toxic, eco-friendly kids tableware is a purchase that moms research carefully before buying — and seeing it in a real family home across an actual meal is what pushes them from researching to buying.
+Non-toxic, eco-friendly kids tableware is something I genuinely care about for our family — and showing it in a real home across an actual meal is exactly the kind of honest content I love to create.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create gifted family mealtime content featuring WeeSprout's bamboo dinnerware — real kids, real meals, real home.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create family mealtime content featuring WeeSprout's bamboo dinnerware — real kids, real meals, real home.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -388,9 +388,9 @@ Bella Valentine
 
 Hi Bloom team,
 
-The morning routine of a mom of four — coffee in hand before chaos begins — is one of the most-watched content formats in the lifestyle space, and a wellness-forward greens and energy drink that fits into that moment is a product that sells itself.
+My morning starts before the kids wake up — coffee and something to actually support my energy for the day ahead — and Bloom fits so naturally into that real daily routine.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create a paid morning routine video for Bloom built around that real daily moment — authentic, energetic content that reaches the women already in your audience.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create a morning routine video for Bloom built around that genuine everyday moment — authentic content that resonates with your audience.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -409,9 +409,9 @@ Bella Valentine
 
 Hi Miya,
 
-Coffee is the first thing I make every morning before four kids wake up — and a clean, dairy-free creamer that makes that moment feel indulgent without the guilt is a product my health-conscious audience actively looks for.
+Coffee is the first thing I make every morning before four kids wake up — and a clean, dairy-free creamer that makes that moment feel indulgent without the guilt is something I genuinely love.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create a paid morning coffee routine video for Nutpods — a quiet, beautiful morning moment that speaks directly to the women in your audience.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create a morning coffee routine video for Nutpods — a quiet, real morning moment that I think would resonate beautifully with your audience.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -460,9 +460,9 @@ Bella Valentine
 
 Hi Amara team,
 
-Snack time with four kids is a daily, recurring content moment — and organic, clean-ingredient snacks that toddlers actually eat are the kind of find that moms immediately want to share with their communities.
+Snack time with four kids happens multiple times a day in our house, and organic, clean-ingredient snacks that my toddlers actually eat are genuinely exciting to find — I'd love to feature Amara in that real daily moment.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create a paid toddler snack video for Amara showing real kids, real snack time — the authentic content that drives purchases with health-conscious moms.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create a toddler snack video for Amara — real kids, real snack time, honest content that health-conscious moms connect with.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -627,9 +627,9 @@ Bella Valentine
 
 Hi YETI team,
 
-A family that boats and spends real time on the water in Florida year-round is exactly the lifestyle YETI was built for — and showing your coolers and drinkware in that authentic setting is more powerful than any studio shoot.
+We boat and spend real time on the water in Florida year-round — YETI feels genuinely made for this kind of family — and I'd love to bring that honest lifestyle to content for you.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. We boat regularly and a YETI on the water with a family of six is a real, compelling content story for your brand. I'd love to discuss a paid or gifted partnership.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. We boat regularly and a YETI on the water with a family of six is a real, natural content story. I'd love to explore a partnership.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -728,9 +728,9 @@ Bella Valentine
 
 Hi Back to the Roots team,
 
-Garden content with kids is some of the most heartwarming and highly-engaged content in the family lifestyle space — and a brand built around growing food together with your children is an exact match for what we create.
+We have a real garden at home and growing food with the kids is one of my favorite things to capture — and a brand built around that exact experience feels like such a natural fit.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. We have a real garden and I'd love to create paid or gifted gardening content featuring Back to the Roots — real kids, real dirt, real growing moments.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create gardening content featuring Back to the Roots — real kids, real dirt, real growing moments.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -829,9 +829,9 @@ Bella Valentine
 
 Hi Thrive Market team,
 
-Health-conscious moms trying to feed a family of six clean, organic food without spending a fortune is one of the most relatable challenges in the mom lifestyle space — and Thrive Market is the most compelling solution to that problem.
+Feeding a family of six clean, organic food without the markup is something I genuinely navigate every week — and Thrive Market is the solution I actually reach for. I'd love to bring that real story to content for you.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create a paid membership and pantry haul video for Thrive Market — showing real health-conscious family shopping in a relatable, compelling way.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create a membership and pantry haul video for Thrive Market — honest, real-family content that speaks to how we actually shop.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -874,9 +874,9 @@ Bella Valentine
 
 Hi OOLY team,
 
-Arts and crafts with multiple kids at the table is one of the most visually engaging and shareable content formats in the family space — and colorful, quality art supplies that kids actually want to use make all the difference.
+Arts and crafts with all four of my kids at the table is something we genuinely do together, and colorful, quality supplies that they actually get excited about make such a difference in how that content comes out.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create paid or gifted arts and crafts content featuring OOLY — vibrant, joyful content that reaches the parents already buying art supplies for their kids.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create arts and crafts content featuring OOLY — vibrant, joyful content that I think your audience would love.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -895,9 +895,9 @@ Bella Valentine
 
 Hi KiwiCo team,
 
-Hands-on STEM activity boxes that kids are genuinely excited to open and work through together is the kind of content that performs consistently well with parents — because it solves the "what do we do today" problem every family faces.
+We're always looking for activities that genuinely keep all four kids engaged — and a hands-on STEM box they're excited to open and work through together is exactly the kind of moment I love to capture.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create a paid unboxing and activity video for KiwiCo — a real family working through a crate together, start to finish.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four in Florida. I'd love to create an unboxing and activity video for KiwiCo — a real family working through a crate together, start to finish.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 

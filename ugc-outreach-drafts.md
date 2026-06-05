@@ -54,9 +54,9 @@ Bella Valentine
 
 Hi Brinn,
 
-Moms are the most influential grocery buyers in the country and they're actively looking for clean protein sources they can feel good serving their families — that's exactly who I create content for.
+As a mom of four, choosing clean protein we can all feel good about is something I think about at every grocery run — and I'd love to bring that genuine story to content for True Nature Meats.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid "what our family actually eats for dinner" video for True Nature Meats — the kind of real, trusted content that drives purchase decisions.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a "what our family actually eats for dinner" video for True Nature Meats — real, honest content from a family that genuinely cares about what's on the table.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -104,7 +104,7 @@ Hi Nereyda,
 
 The 5am quiet moment before four kids wake up is one of the most powerful content hooks in the mom space — and a clean, organic coffee brand belongs right there.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid "5am quiet time" video for Fabula that speaks to the moms who know exactly what that moment means.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a "5am quiet time" video for Fabula that speaks to the moms who know exactly what that moment means.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -125,7 +125,7 @@ Hi Noah,
 
 Busy moms don't have time for a complicated coffee setup — the simpler the better, and that's exactly what makes Javvy such a compelling product story to tell.
 
-I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a paid morning routine video for Javvy showing how a mom of four actually gets her coffee together — fast, easy, done.
+I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a morning routine video for Javvy showing how a mom of four actually gets her coffee together — fast, easy, done.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -146,7 +146,7 @@ Hi Miya,
 
 Dairy-free and clean-label products are among the fastest-growing searches in the mom wellness space — and Nutpods is one of the most trusted names in that conversation.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid morning coffee routine video for Nutpods that reaches health-conscious moms through content they actually trust.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a morning coffee routine video for Nutpods that reaches health-conscious moms through content they actually trust.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -167,7 +167,7 @@ Hi Ryl team,
 
 "What I drink instead of wine after the kids go to bed" is one of the most searched mom lifestyle topics right now — and Ryl is the perfect answer to that moment.
 
-I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a paid evening wind-down video for Ryl built around that exact story.
+I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create an evening wind-down video for Ryl built around that exact story.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -194,7 +194,7 @@ Hi Tracy,
 
 "The only cereal I let my kids eat" is a hook that stops moms mid-scroll — and Three Wishes is the brand that actually earns that claim.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid breakfast content video for Three Wishes built around that hook — the kind that converts with health-conscious moms who are tired of the cereal aisle.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a breakfast content video for Three Wishes built around that hook — the kind that converts with health-conscious moms who are tired of the cereal aisle.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -236,7 +236,7 @@ Hi Grace,
 
 Allergy-friendly snacks are one of the highest-trust purchase decisions a mom makes — and authentic UGC from a real mom of four reaches that audience better than any ad.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid snack time video for Partake that speaks directly to the moms who need to know they can say yes to this one.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a snack time video for Partake that speaks directly to the moms who need to know they can say yes to this one.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -257,7 +257,7 @@ Hi Amara team,
 
 Toddler snack content is among the highest-engagement mom content on TikTok and Instagram — and organic, real-ingredient snacks are what that audience is actively searching for.
 
-I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a paid toddler snack video for Amara that drives awareness with the exact moms buying your products.
+I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a toddler snack video for Amara that drives awareness with the exact moms buying your products.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -278,7 +278,7 @@ Hi Alexis,
 
 Moms are constantly looking for a treat they can say yes to without overthinking it — and that is an incredibly powerful content angle for a brand like Puff Cookies.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid snack video for Puff Cookies built around the "treat time without the guilt" moment that resonates so deeply with my audience.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a snack video for Puff Cookies built around the "treat time without the guilt" moment that resonates so deeply with my audience.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -299,7 +299,7 @@ Hi Diana,
 
 Movie night snack content for families performs consistently well in the mom space — and LesserEvil is the brand that makes that moment feel guilt-free.
 
-I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a paid family snack video for LesserEvil that positions your product as the go-to for health-conscious families.
+I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a family snack video for LesserEvil that positions your product as the go-to for health-conscious families.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -320,7 +320,7 @@ Hi there,
 
 "The snack that replaced chips in our house" is a hook that stops moms scrolling — and RIND's whole-fruit concept is exactly the kind of find that earns that claim authentically.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid snack video for RIND built around that story for your ads and social channels.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a snack video for RIND built around that story for your ads and social channels.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -341,7 +341,7 @@ Hi Alejandra,
 
 "The chocolate I hide from my kids" is one of those hooks that every mom immediately understands — and Chocxo's clean ingredient story makes that joke land even better.
 
-I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a paid lifestyle video for Chocxo built around that moment for your ads and social channels.
+I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a lifestyle video for Chocxo built around that moment for your ads and social channels.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -360,9 +360,9 @@ Bella Valentine
 
 Hi Just Ingredients team,
 
-Clean supplements are one of the most-researched categories in the mom wellness space — and moms buy based on trust, not ads. Authentic UGC from a mom of four is the most direct path to that trust.
+As a mom of four, I research what I put in my body carefully — and supplements I can actually feel good about are something I talk about genuinely with my audience. I'd love to bring that authenticity to content for Just Ingredients.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid wellness routine video for Just Ingredients that speaks to the health-conscious moms already in your audience.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a wellness routine video for Just Ingredients — honest, personal content that health-conscious moms trust.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -410,7 +410,7 @@ Hi Nic,
 
 Kids' reaction content to personalized gifts is some of the highest-performing video in the family space — and a book where your child is the main character is an almost guaranteed moment.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid reaction video for Wonderbly that shows a real kid experiencing their personalized book for the first time.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a reaction video for Wonderbly that shows a real kid experiencing their personalized book for the first time.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -431,7 +431,7 @@ Hi there,
 
 Faith-based content for families is one of the most underserved and deeply loyal audiences on social media — and bedtime routine content with purpose performs exceptionally well.
 
-I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a paid bedtime routine video for Little Bible Stories that connects with faith-forward moms in a genuine way.
+I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a bedtime routine video for Little Bible Stories that connects with faith-forward moms in a genuine way.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -450,9 +450,9 @@ Bella Valentine
 
 Hi Grace,
 
-Educational screen time is one of the most-debated topics among millennial moms — and an app that parents can actually feel good about is a product that sells itself when a real mom vouches for it.
+As a mom of four, I'm thoughtful about screen time — and an educational app that I can genuinely feel good about is something I'd be happy to share honestly with my audience.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid learning content video for ABC Mouse showing real toddler engagement that drives downloads with the parent demographic.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a learning content video for ABC Mouse showing real toddler engagement — the kind that resonates naturally with parents.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -473,7 +473,7 @@ Hi there,
 
 Arts and crafts content that parents and kids can do together is some of the most-saved content in the family space — especially when the end result is beautiful and the process is actually doable.
 
-I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a paid activity video for Crafty by Numbers that shows a real family afternoon project from start to finish.
+I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create an activity video for Crafty by Numbers that shows a real family afternoon project from start to finish.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -531,9 +531,9 @@ Bella Valentine
 
 Hi Lullaby Earth team,
 
-Safe sleep is one of the most-researched topics for new parents and non-toxic mattresses are a category driven almost entirely by word of mouth and trusted recommendations.
+Safe sleep is something every parent thinks deeply about — and a non-toxic mattress that families can genuinely trust is the kind of product I'd love to share honestly with my audience.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid nursery and safe sleep video for Lullaby Earth that speaks to the parents who are doing exactly that research right now.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a nursery and safe sleep video for Lullaby Earth that connects with parents navigating exactly that decision.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -575,7 +575,7 @@ Hi there,
 
 Diapers are a product that parents switch based almost entirely on recommendations from other parents they trust — and "the diaper that actually works overnight" is a hook that earns instant attention.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid UGC video for Maneji built around that story for your social channels and ads.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a UGC video for Maneji built around that story for your social channels and ads.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -594,9 +594,9 @@ Bella Valentine
 
 Hi Sasha,
 
-Formula is one of the most trust-sensitive purchasing decisions a parent makes — and authentic content from a real mom is far more convincing than any ad campaign.
+Formula is one of the most personal decisions a parent makes, and hearing from a real mom of four can mean a lot to a family going through that same choice. I'd love to create honest, genuine content for Kendamil around that story.
 
-I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a paid UGC video for Kendamil built around the story of why a mom chose your formula — the kind of honest, personal content that reaches new parents at exactly the right moment.
+I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a UGC video for Kendamil — the kind of personal, real-mom content that speaks to new parents at exactly the right moment.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -617,7 +617,7 @@ Hi Hailey,
 
 Navigating European formula options is genuinely overwhelming for new moms — and a real parent breaking it down in plain language is the content that drives real conversions.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid educational and personal video for Formuland that meets new parents right where they are in that decision.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create an educational and personal video for Formuland that meets new parents right where they are in that decision.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -638,7 +638,7 @@ Hi SubLuna team,
 
 Getting enough protein into a picky toddler is a real daily struggle for moms — and a product that solves it in a way kids actually like is an easy, authentic story to tell.
 
-I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a paid toddler nutrition video for SubLuna built around that real mom experience.
+I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a toddler nutrition video for SubLuna built around that real mom experience.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -657,9 +657,9 @@ Bella Valentine
 
 Hi Quinci,
 
-Kids' vitamins are one of the highest-researched products among millennial moms — and a recommendation from a trusted mom of four carries more weight than a polished ad.
+As a mom of four, I'm very thoughtful about what vitamins I give my kids — and that kind of genuine daily trust makes for really honest, personal content.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid morning routine video for Childlife Vitamins that reaches health-conscious parents through content they actually trust.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a morning routine video for Childlife Vitamins — the kind of content health-conscious parents actually connect with.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -680,7 +680,7 @@ Hi Meng,
 
 Baby milestone and keepsake content consistently drives some of the highest emotional engagement in the family space — and moms share it, save it, and buy from it.
 
-I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a paid milestone video for Our Little Treasures that captures the kind of heartfelt moment that gets shared.
+I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a milestone video for Our Little Treasures that captures the kind of heartfelt moment that gets shared.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -701,7 +701,7 @@ Hi Roger,
 
 Baby gear is one of the most heavily researched product categories on the market — and a real mom of four showing a product in action is worth more than any spec sheet.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid UGC video for Renzo showing your gear in a real, on-the-go family moment that builds trust with new parents.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a UGC video for Renzo showing your gear in a real, on-the-go family moment that builds trust with new parents.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -722,7 +722,7 @@ Hi Eden,
 
 Running errands and traveling with young children is one of the most-searched parenting topics — and baby gear that genuinely makes that easier is a product that practically demonstrates itself.
 
-I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a paid on-the-go family video for Guava Family that shows your products solving a real problem for real parents.
+I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create an on-the-go family video for Guava Family that shows your products solving a real problem for real parents.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -791,7 +791,7 @@ Hi Jessica,
 
 Coordinating family outfits are some of the most-saved and most-shared content in the family space — and Baltic Born's styles are exactly what drives that moment.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid family fashion video for Baltic Born that showcases your coordinating styles in a real family setting — the kind that sends moms straight to the website.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a family fashion video for Baltic Born that showcases your coordinating styles in a real family setting — the kind that sends moms straight to the website.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -812,7 +812,7 @@ Hi Olivia,
 
 "Dressing four kids without spending a fortune" is the kind of hook that stops a mom mid-scroll — and PatPat's combination of style and affordability makes that story genuinely easy to tell.
 
-I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a paid kids fashion haul video for PatPat built around that exact story.
+I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a kids fashion haul video for PatPat built around that exact story.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -971,7 +971,7 @@ Hi Megan,
 
 Home declutter and before/after transformation content consistently goes viral in the family and home space — and a service that makes it as simple as making one call is a very easy story to tell.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid before/after video for 1-800-GOT-JUNK showing a real family home transformation — the kind of satisfying content that drives real bookings.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a before/after video for 1-800-GOT-JUNK showing a real family home transformation — the kind of satisfying content that drives real bookings.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -998,7 +998,7 @@ Hi Jacky,
 
 "10 minutes that made me a better mom" is a content hook that earns immediate attention from the overwhelmed mom demographic — and Calm is the product that lives in that moment.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid self-care routine video for Calm built around that story — honest, relatable content that speaks directly to burned-out moms.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a self-care routine video for Calm built around that story — honest, relatable content that speaks directly to burned-out moms.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -1019,7 +1019,7 @@ Hi Eira,
 
 Keeping a relationship strong while raising young children is one of the most universally relatable struggles in the parenting space — and an app designed specifically for that is a product that practically pitches itself.
 
-I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a paid couple lifestyle video for Paired built around that real story — the kind that drives downloads with the parent demographic.
+I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a couple lifestyle video for Paired built around that real story — the kind that drives downloads with the parent demographic.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -1061,7 +1061,7 @@ Hi Savannah,
 
 Gut health is one of the top wellness topics among millennial moms and a product with a genuine mechanism of action is something my audience wants to understand and trust from someone real.
 
-I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a paid wellness routine video for Biom that builds that trust with health-conscious moms through authentic content.
+I'm Bella Valentine, a UGC creator documenting daily life as a mom of four. I'd love to create a wellness routine video for Biom that builds that trust with health-conscious moms through authentic content.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
@@ -1082,7 +1082,7 @@ Hi Maelys team,
 
 Postpartum body confidence is one of the most emotionally resonant topics in the mom content space — and a product that genuinely supports that journey is a brand story that connects on a deeper level than most.
 
-I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a paid self-care video for Maelys built around that real postpartum experience — the kind of honest content that converts with your target audience.
+I'm Bella Valentine, a UGC creator making daily family content as a mom of four. I'd love to create a self-care video for Maelys built around that real postpartum experience — the kind of honest content that converts with your target audience.
 
 Would love to be considered, if anything feels like a fit you can view my [portfolio here](https://vidadelosvalentines.my.canva.site/).
 
