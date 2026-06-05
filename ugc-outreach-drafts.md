@@ -50,7 +50,7 @@ Bella Valentine
 
 ### True Nature Meats — brinn@truenaturemeats.com | PAID
 
-**Subject:** True Nature Meats x Bella Valentine — content idea
+**Subject:** Content idea for True Nature Meats
 
 Hi Brinn,
 
@@ -71,7 +71,7 @@ Bella Valentine
 
 ### Grubhub — BTiesi@golin.com | PAID
 
-**Subject:** Grubhub x Bella Valentine — mom content idea
+**Subject:** Content idea for Grubhub
 
 Hi there,
 
@@ -98,7 +98,7 @@ Bella Valentine
 
 ### Fabula Coffee — nereyda@fabulacoffee.com | PAID
 
-**Subject:** Fabula x Bella Valentine — content idea
+**Subject:** Content idea for Fabula
 
 Hi Nereyda,
 
@@ -119,7 +119,7 @@ Bella Valentine
 
 ### Javvy Coffee — noah@javvycoffee.com | PAID
 
-**Subject:** Javvy x Bella Valentine — content idea
+**Subject:** Content idea for Javvy
 
 Hi Noah,
 
@@ -140,7 +140,7 @@ Bella Valentine
 
 ### Nutpods — miya.mukai@nutpods.com | PAID
 
-**Subject:** Nutpods x Bella Valentine — content idea
+**Subject:** Content idea for Nutpods
 
 Hi Miya,
 
@@ -161,7 +161,7 @@ Bella Valentine
 
 ### Ryl Tea — ambassadors@Drinkryl.com | PAID
 
-**Subject:** Ryl Tea x Bella Valentine — content idea
+**Subject:** Content idea for Ryl Tea
 
 Hi Ryl team,
 
@@ -188,7 +188,7 @@ Bella Valentine
 
 ### Three Wishes Cereal — tracy@threewishescereal.com | PAID
 
-**Subject:** Three Wishes x Bella Valentine — content idea
+**Subject:** Content idea for Three Wishes
 
 Hi Tracy,
 
@@ -230,7 +230,7 @@ Bella Valentine
 
 ### Partake — grace@candidnetwork.co | PAID
 
-**Subject:** Partake x Bella Valentine — content idea
+**Subject:** Content idea for Partake
 
 Hi Grace,
 
@@ -251,7 +251,7 @@ Bella Valentine
 
 ### Amara Toddler Snacks — creators@amaraorganicfoods.com | PAID
 
-**Subject:** Amara x Bella Valentine — content idea
+**Subject:** Content idea for Amara
 
 Hi Amara team,
 
@@ -272,7 +272,7 @@ Bella Valentine
 
 ### Puff Cookies — alexis.grabel@puffcookies.com | PAID
 
-**Subject:** Puff Cookies x Bella Valentine — content idea
+**Subject:** Content idea for Puff Cookies
 
 Hi Alexis,
 
@@ -293,7 +293,7 @@ Bella Valentine
 
 ### LesserEvil Snacks — diana@htcollective.com | PAID
 
-**Subject:** LesserEvil x Bella Valentine — content idea
+**Subject:** Content idea for LesserEvil
 
 Hi Diana,
 
@@ -314,7 +314,7 @@ Bella Valentine
 
 ### RIND Snacks — aelfanbaum@kirfoods.com | PAID
 
-**Subject:** RIND x Bella Valentine — content idea
+**Subject:** Content idea for RIND
 
 Hi there,
 
@@ -335,7 +335,7 @@ Bella Valentine
 
 ### Chocxo — alejandra@commercetheory.io | PAID
 
-**Subject:** Chocxo x Bella Valentine — content idea
+**Subject:** Content idea for Chocxo
 
 Hi Alejandra,
 
@@ -356,7 +356,7 @@ Bella Valentine
 
 ### Just Ingredients — ugccreators@justingredients.com | PAID
 
-**Subject:** Just Ingredients x Bella Valentine — content idea
+**Subject:** Content idea for Just Ingredients
 
 Hi Just Ingredients team,
 
@@ -404,7 +404,7 @@ Bella Valentine
 
 ### Wonderbly Books — nic@wonderbly.com | PAID
 
-**Subject:** Wonderbly x Bella Valentine — content idea
+**Subject:** Content idea for Wonderbly
 
 Hi Nic,
 
@@ -425,7 +425,7 @@ Bella Valentine
 
 ### Little Bible Stories — contact@littlebiblestories.com | PAID
 
-**Subject:** Little Bible Stories x Bella Valentine — content idea
+**Subject:** Content idea for Little Bible Stories
 
 Hi there,
 
@@ -446,7 +446,7 @@ Bella Valentine
 
 ### ABC Mouse — grace@candidnetwork.co | PAID
 
-**Subject:** ABC Mouse x Bella Valentine — content idea
+**Subject:** Content idea for ABC Mouse
 
 Hi Grace,
 
@@ -467,7 +467,7 @@ Bella Valentine
 
 ### Crafty by Numbers — ugc@brandluxmedia.com | PAID
 
-**Subject:** Crafty by Numbers x Bella Valentine — content idea
+**Subject:** Content idea for Crafty by Numbers
 
 Hi there,
 
@@ -527,7 +527,7 @@ Bella Valentine
 
 ### Lullaby Earth — lullabyearth@brands.aspireiq.com | PAID
 
-**Subject:** Lullaby Earth x Bella Valentine — content idea
+**Subject:** Content idea for Lullaby Earth
 
 Hi Lullaby Earth team,
 
@@ -548,7 +548,7 @@ Bella Valentine
 
 ### Tasty Tie Teether — dan@tastytie.com | PAID
 
-**Subject:** Tasty Tie x Bella Valentine — content idea
+**Subject:** Content idea for Tasty Tie
 
 Hi Dan,
 
@@ -569,7 +569,7 @@ Bella Valentine
 
 ### Maneji Diapers — sg@manekijapan.com | PAID
 
-**Subject:** Maneji x Bella Valentine — content idea
+**Subject:** Content idea for Maneji
 
 Hi there,
 
@@ -590,7 +590,7 @@ Bella Valentine
 
 ### Kendamil Formula — sasha.bonar@kendamil.uk | PAID
 
-**Subject:** Kendamil x Bella Valentine — content idea
+**Subject:** Content idea for Kendamil
 
 Hi Sasha,
 
@@ -611,7 +611,7 @@ Bella Valentine
 
 ### Formuland — hailey@theupprhand.com | PAID
 
-**Subject:** Formuland x Bella Valentine — content idea
+**Subject:** Content idea for Formuland
 
 Hi Hailey,
 
@@ -632,7 +632,7 @@ Bella Valentine
 
 ### SubLuna Kids Protein — collabs@shopsubluna.com | PAID
 
-**Subject:** SubLuna x Bella Valentine — content idea
+**Subject:** Content idea for SubLuna
 
 Hi SubLuna team,
 
@@ -653,7 +653,7 @@ Bella Valentine
 
 ### Childlife Vitamins — quinci@godfreysocialpr.com | PAID
 
-**Subject:** Childlife Vitamins x Bella Valentine — content idea
+**Subject:** Content idea for Childlife Vitamins
 
 Hi Quinci,
 
@@ -674,7 +674,7 @@ Bella Valentine
 
 ### Our Little Treasures — meng@ourlittletreasures.com | PAID
 
-**Subject:** Our Little Treasures x Bella Valentine — content idea
+**Subject:** Content idea for Our Little Treasures
 
 Hi Meng,
 
@@ -695,7 +695,7 @@ Bella Valentine
 
 ### Renzo Baby Gear — roger@renzobaby.com | PAID
 
-**Subject:** Renzo Baby x Bella Valentine — content idea
+**Subject:** Content idea for Renzo Baby
 
 Hi Roger,
 
@@ -716,7 +716,7 @@ Bella Valentine
 
 ### Guava Family — eden@pilothouse.co | PAID
 
-**Subject:** Guava Family x Bella Valentine — content idea
+**Subject:** Content idea for Guava Family
 
 Hi Eden,
 
@@ -785,7 +785,7 @@ Bella Valentine
 
 ### Baltic Born — jessica@balticborn.com | PAID
 
-**Subject:** Baltic Born x Bella Valentine — content idea
+**Subject:** Content idea for Baltic Born
 
 Hi Jessica,
 
@@ -806,7 +806,7 @@ Bella Valentine
 
 ### PatPat — olivia@influencer.patpatmail.com | PAID
 
-**Subject:** PatPat x Bella Valentine — content idea
+**Subject:** Content idea for PatPat
 
 Hi Olivia,
 
@@ -848,7 +848,7 @@ Bella Valentine
 
 ### Kindred Bravely — hello@kindredbravely.com | PAID OR GIFTED
 
-**Subject:** Kindred Bravely x Bella Valentine — content idea
+**Subject:** Content idea for Kindred Bravely
 
 Hi Kindred Bravely team,
 
@@ -902,7 +902,7 @@ Bella Valentine
 
 ### Arbor Made Candles — nate@arbormade.co | PAID
 
-**Subject:** Arbor Made x Bella Valentine — content idea
+**Subject:** Content idea for Arbor Made
 
 Hi Nate,
 
@@ -965,7 +965,7 @@ Bella Valentine
 
 ### 1-800-GOT-JUNK — megan.connery@1800gotjunk.com | PAID
 
-**Subject:** 1-800-GOT-JUNK x Bella Valentine — content idea
+**Subject:** Content idea for 1-800-GOT-JUNK
 
 Hi Megan,
 
@@ -992,7 +992,7 @@ Bella Valentine
 
 ### Calm App — jacky.huang@calm.com | PAID
 
-**Subject:** Calm x Bella Valentine — content idea
+**Subject:** Content idea for Calm
 
 Hi Jacky,
 
@@ -1013,7 +1013,7 @@ Bella Valentine
 
 ### Paired App — eira.engedal@paired.com | PAID
 
-**Subject:** Paired x Bella Valentine — content idea
+**Subject:** Content idea for Paired
 
 Hi Eira,
 
@@ -1055,7 +1055,7 @@ Bella Valentine
 
 ### Biom — savannah@getbiom.co | PAID
 
-**Subject:** Biom x Bella Valentine — content idea
+**Subject:** Content idea for Biom
 
 Hi Savannah,
 
@@ -1076,7 +1076,7 @@ Bella Valentine
 
 ### Maelys Skincare — ugc@maelyscosmetics.com | PAID
 
-**Subject:** Maelys x Bella Valentine — content idea
+**Subject:** Content idea for Maelys
 
 Hi Maelys team,
 
@@ -1097,7 +1097,7 @@ Bella Valentine
 
 ### Native Deodorant — katie@nativeco.com | PAID OR GIFTED
 
-**Subject:** Native x Bella Valentine — content idea
+**Subject:** Content idea for Native
 
 Hi Katie,
 

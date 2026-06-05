@@ -21,7 +21,7 @@
 
 ### Huggies — huggies.com/en-us/contact-us | PAID
 
-**Subject:** Huggies x Bella Valentine — content idea
+**Subject:** Content idea for Huggies
 
 Hi Huggies team,
 
@@ -60,7 +60,7 @@ Bella Valentine
 
 ### Mustela — affiliates@mustelausa.com | PAID/GIFTED
 
-**Subject:** Mustela x Bella Valentine — content idea
+**Subject:** Content idea for Mustela
 
 Hi Mustela team,
 
@@ -123,7 +123,7 @@ Bella Valentine
 
 ### Blueland — affiliate@blueland.com | PAID/GIFTED
 
-**Subject:** Blueland x Bella Valentine — content idea
+**Subject:** Content idea for Blueland
 
 Hi Blueland team,
 
@@ -144,7 +144,7 @@ Bella Valentine
 
 ### Dropps — partnerships@dropps.com | PAID
 
-**Subject:** Dropps x Bella Valentine — content idea
+**Subject:** Content idea for Dropps
 
 Hi Dropps team,
 
@@ -165,7 +165,7 @@ Bella Valentine
 
 ### Molly's Suds — mollyssuds.com/pages/influencers-affiliates-and-partnerships | PAID/GIFTED
 
-**Subject:** Molly's Suds x Bella Valentine — content idea
+**Subject:** Content idea for Molly's Suds
 
 Hi Molly's Suds team,
 
@@ -240,7 +240,7 @@ Bella Valentine
 
 ### Our Place — press@fromourplace.com | PAID/GIFTED
 
-**Subject:** Our Place x Bella Valentine — content idea
+**Subject:** Content idea for Our Place
 
 Hi Our Place team,
 
@@ -261,7 +261,7 @@ Bella Valentine
 
 ### HexClad — hexclad.com/pages/influencer-affiliate | PAID ($250–$800)
 
-**Subject:** HexClad x Bella Valentine — content idea
+**Subject:** Content idea for HexClad
 
 Hi HexClad team,
 
@@ -318,7 +318,7 @@ Bella Valentine
 
 ### Avanchy — Help@Avanchy.com | PAID/GIFTED
 
-**Subject:** Avanchy x Bella Valentine — content idea
+**Subject:** Content idea for Avanchy
 
 Hi Avanchy team,
 
@@ -384,7 +384,7 @@ Bella Valentine
 
 ### Bloom Nutrition — bloomnu.com/pages/partnerships | PAID
 
-**Subject:** Bloom x Bella Valentine — content idea
+**Subject:** Content idea for Bloom
 
 Hi Bloom team,
 
@@ -405,7 +405,7 @@ Bella Valentine
 
 ### Nutpods — miya.mukai@nutpods.com | PAID
 
-**Subject:** Nutpods x Bella Valentine — content idea
+**Subject:** Content idea for Nutpods
 
 Hi Miya,
 
@@ -456,7 +456,7 @@ Bella Valentine
 
 ### Amara Organics — creators@amaraorganicfoods.com | PAID
 
-**Subject:** Amara x Bella Valentine — content idea
+**Subject:** Content idea for Amara
 
 Hi Amara team,
 
@@ -623,7 +623,7 @@ Bella Valentine
 
 ### YETI — yeti.com/affiliate.html | PAID/GIFTED
 
-**Subject:** YETI x Bella Valentine — content idea
+**Subject:** Content idea for YETI
 
 Hi YETI team,
 
@@ -724,7 +724,7 @@ Bella Valentine
 
 ### Back to the Roots — Contact@backtotheroots.com | PAID/GIFTED
 
-**Subject:** Back to the Roots x Bella Valentine — content idea
+**Subject:** Content idea for Back to the Roots
 
 Hi Back to the Roots team,
 
@@ -825,7 +825,7 @@ Bella Valentine
 
 ### Thrive Market — thrivemarket.com/ambassador | PAID
 
-**Subject:** Thrive Market x Bella Valentine — content idea
+**Subject:** Content idea for Thrive Market
 
 Hi Thrive Market team,
 
@@ -870,7 +870,7 @@ Bella Valentine
 
 ### OOLY Art Supplies — hello@ooly.com | PAID/GIFTED
 
-**Subject:** OOLY x Bella Valentine — content idea
+**Subject:** Content idea for OOLY
 
 Hi OOLY team,
 
@@ -891,7 +891,7 @@ Bella Valentine
 
 ### KiwiCo — kiwico.com/affiliate-program | PAID
 
-**Subject:** KiwiCo x Bella Valentine — content idea
+**Subject:** Content idea for KiwiCo
 
 Hi KiwiCo team,
 
